@@ -1,4 +1,4 @@
-# PONER EL NOMBRE DEL ARTÍCULO
+# Medición del énfasis temático en discursos presidenciales colombianos mediante modelos de lenguaje
 
 Repositorio reproducible para el análisis temático y longitudinal del discurso político en español mediante modelos de lenguaje, embeddings semánticos, asignación de tópicos, evaluación mediante LLM-as-a-Judge y análisis temporal.
 
