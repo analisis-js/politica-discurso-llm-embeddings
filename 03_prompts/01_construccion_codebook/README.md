@@ -1,3 +1,3 @@
 # 01_construccion_codebook
 
-Este espacio incorpora todos los prompts usados en el proceso de LLM
+Prompt usado para la construcción de los codebooks por los LLM
