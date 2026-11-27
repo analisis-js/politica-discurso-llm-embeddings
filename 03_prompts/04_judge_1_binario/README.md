@@ -1,3 +1,3 @@
-#04_judge_1
+# 04_judge_1_binario
 
-Este espacio incorpora todos los prompts usados en el proceso de LLM
+Se aplica el LLM as a judge para la clasificación binaria
