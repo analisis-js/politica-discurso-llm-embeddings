@@ -1,0 +1,62 @@
+https://www.presidencia.gov.co/prensa/Paginas/Palabras-del-presidente-Gustavo-Petro-en-la-firma-del-decreto-de-autoridad-indigena-241015.aspx; https://youtu.be/1TJPi6Ca-eY
+
+Palabras del presidente Gustavo Petro en la firma del decreto de autoridad indígena
+
+“Ahora la tarea inmediata, además de la unidad de los pueblos, que no son sólo los del sur, sino que tienen que vincular los pueblos progresistas del norte, es la humanidad toda unida, el objetivo político es alcanzar el poder en el corto plazo, no sólo los Gobiernos". 
+
+Bogotá, 15 de octubre de 2024 
+
+Bueno, firmamos este Decreto en el marco ya de la COP16, quizás el principal evento que Colombia ha hecho a nivel internacional. Sólo la República Popular China, por ejemplo, va a enviar 300 funcionarios, sólo ese país. Y tendremos la mayor parte de delegaciones de los Gobiernos del mundo, de las culturas del mundo, de las representaciones de los pueblos del mundo, algunas quizás más genuinas que otras, de acuerdo a las opciones políticas que se han escogido a lo largo y ancho del planeta, pero todas interesadas en un reequilibrio entre el ser humano y la naturaleza, que se ha vuelto fundamental hoy como parte de la conciencia de esos mismos pueblos para poder simplemente vivir.
+
+Decíamos en algunos discursos, en algunas intervenciones, que se desarrolla un inmenso conflicto profundísimo, quizás como nunca antes, entre la humanidad, su vida y la codicia, que es como yo denomino al capital, al mundo que busca insaciablemente la ganancia y de manera cada vez más grande, consumiendo cada vez más energías y, por tanto, destruyendo cada vez más naturaleza y humanidad. La destrucción de la naturaleza casi siempre implica la destrucción de la humanidad. Y lo estamos viendo casi que en directo.
+
+Los hechos de Gaza no son simplemente en un punto del planeta y como una especie de tradición violenta de las últimas siete décadas en ese lugar, sino que hoy representan algo muchísimo más terrible, que es una demostración de represión máxima, de barbarie máxima, asesinando decenas de miles de niños y niñas, lo más sagrado de la vida humana, simplemente para demostrar que tienen el poder quienes disparan esas bombas, que no solamente es el Gobierno israelí, sino que cuenta con el apoyo prácticamente irrestricto de las Fuerzas Militares y el poder económico de los Estados Unidos y de Europa.
+
+El capital fósil
+​Una especie de Occidente poderoso movido por la codicia, destruyendo una parte de la humanidad para mostrarle a la demás humanidad que tiene el poder y que nos puede extinguir cuando se le dé la gana violentamente. Esa es una expresión de barbarie, de bárbaros, no obviamente de la civilización humana que ha hecho cosas sublimes, sino del sacrificio de esa humanidad por la codicia en sus niveles más superiores, el gran capital fósil, le llamo yo.
+
+Ese nombre de capital fósil ya no es solamente mío, porque ya me lo quitaron profesores suecos y se ha vuelto de moda en el mundo, pero como capital fósil se entiende casi todo el capital, porque su energía básica es el petróleo, el carbono, lo que antes fueron seres vivos, se sustenta, por tanto, sobre la muerte.
+
+El carbono que queda de los seres vivos después de millones de años acumulado y que pareciera ese capital ser una máquina que escarba para sacar ese carbono, volverlo energía para hacer cosas y ganancias, y cada vez en mayor proporción arrojarlo ya como un gas en la atmósfera, como un residuo, envenenándonos a todos y todas, envenenando nuestros niños, envenenando miles de millones de personas, envenenando los océanos y, por tanto, las especies marinas, el coral, envenenando las selvas, quemándolas literalmente, acabando con el pulmón, los pocos pulmones que quedan en el planeta, acabando y envenenando la vegetación, las especies vegetales y todas las especies animales, incluidas las más invisibles, que van transformando en serios enemigos de la existencia humana, porque vamos de enfermedad en enfermedad y no hacia una vida mejor, sino cada vez hacia vidas más degradadas.
+
+Es el costo que a los pueblos les significa el no saberse rebelar contra esta maquinaria de muerte que cada vez con mayor fuerza avanza en el mundo.
+
+El men​saje indígena
+​Y entonces, ¿quién nos avisaba de estas situaciones antes? Pues hay que decirlo que antes que la ciencia, que es la gran alarma que se ha prendido en la Tierra, lo fueron las comunidades indígenas de todos los continentes y muy especialmente las comunidades indígenas de las Américas, que los indígenas no llamaban América, América.
+
+Y esa adoración de los pueblos indígenas sabios de la Madre Tierra, que era como realmente llamaban los continentes, esa adoración era la que permitía el equilibrio para existir. Y bien lo habían aprendido a través de sus cosmovisiones, de sus maneras de entender la existencia, lo habían gritado incluso delante de la cruz, sin que Jesús tuviera culpa de quién esgrimía su símbolo, y por qué estaba armado y por qué ejercía genocidios sobre las civilizaciones de estas tierras, arrasando con culturas, homogenizando el pensamiento, esclavizando y volviendo siervos los que eran antes libres.
+
+Esa conquista terminó silenciando la voz indígena, que se volvió resistente durante siglos, pero que siempre nos fue repitiendo de una y otra manera a través de las bebidas, a través de los ritos, incluso de los ritos cristianos, que adaptaron para transmitir sus mensajes, que el ser humano no se podría separar jamás de la naturaleza, porque entonces sucumbiría.
+
+Ese mensaje indígena fue silenciado por una pretensión soberbia de los pueblos del norte y de sus gobernantes, y de sus grandes empresas, porque cayeron en el marasmo de la creencia que podría haber un progreso ilimitado, infinito, siempre creciente, olvidando que eso tenía un límite que se sobrepasó hace mucho y que por tanto esa manera de producir, de consumir y de concebir el mercado y el consumo, pues no iba a servir, sino para destruir el planeta y la humanidad.
+
+La C​​OP16
+​La COP16 nos va a decir eso, va a reunir pueblos, algunos gobernantes lo van a hacer simplemente para entibiar el discurso, la tibieza sobre el cuidado de la naturaleza, desteñir el verde, volverlo amarillento, tendiendo a negro, pero muchísimos pueblos lo que van a buscar es unirse, y es esa unidad de los pueblos lo único que nos puede salvar, no sólo de los pueblos del sur que van a ser los más grandes afectados, como en nuestro país, porque en este reinado del verde que es nuestro país, el país de la belleza surgirá, es un desierto, si en unas décadas no se ha frenado la codicia en el planeta y también en nuestro país, sacar petróleo de la selva, oro de la selva, extinguir los ríos, en la minería ilegal y en la legal, acabar el agua, usada incluso por la misma atmósfera calenturienta que va secando los ríos.
+
+Cuándo se había visto que se secaba el río Amazonas y al mismo tiempo se inundaba La Guajira, cuándo habíamos visto que pasábamos de catástrofe ambiental en catástrofe ambiental, este Gobierno lleva dos años de catástrofes ambientales y ya no alcanza el dinero, y cuando quisimos poner los impuestos sobre el carbón y el petróleo, que era lo lógico para por lo menos a partir de allí cimentar las posibilidades de adaptarnos a la crisis climática, pues suspendieron la ley los defensores del capital fósil, que hoy aún tienen el poder en Colombia, no tienen el Gobierno, pero tienen el poder, porque gobernar no es tener el poder, eso lo aprendimos hace muchísimo tiempo.
+
+El Gobierno y el poder
+​Y por eso quizás ahora la tarea inmediata, además de la unidad de los pueblos, que no son sólo los del sur, sino que tienen que vincular los pueblos progresistas del norte, es la humanidad toda unida, el objetivo político a alcanzar y en el corto plazo, por eso esa unidad de los pueblos implica, en muchos casos alcanzar el poder, no sólo los Gobiernos.
+
+Y aquí en Colombia sí que nos están demostrando esa necesidad imperiosa, porque alcanzando el Gobierno de manera democrática, ya nos quieren echar de este palacio, sin haber pasado la mitad, porque ellos son adictos a este palacio, y a sus fríos, y a sus dorados, y se creen reyes y reinas, y se les olvida quién era Bolívar, el que descabezaba reyes, a través del grito libertario, y a través de una lucha perpetua, yo diría, por la libertad.
+
+Se nos olvidó completamente la lucha de Bolívar, lo enterramos, quizás gentes aquí lo hicieron matar, en esta ciudad, gritando 'fuera longaniza, fuera el venezolano, fuera el extranjero', cuando era el Libertador, y fue a una ciudad monárquica a morir, que recién habían liberado, porque la oligarquía samaria era realista, como realistas se creen las oligarquías colombianas y latinoamericanas hoy, porque Latinoamérica no vive aún una democracia profunda, esa es su lucha.
+
+Para vivirla, el pueblo tiene que ir al poder, no sólo al Gobierno, y quizás las circunstancias actuales están mostrando que ese es el camino que queda, porque si no quieren que la democracia llegue al Gobierno, y quieren construir un mundo oligárquico y mortífero, bárbaro, como han sido las oligarquías colombianas, casi que peores que los descendientes de la monarquía española en estas tierras, casi que peor, yo diría que peor, los primeros mataron, hicieron genocidios de pueblos indígenas, y trajeron la esclavitud de pueblos negros, pero las oligarquías también han generado el genocidio en Colombia, y han matado indígenas, y han matado pueblos negros, y han matado niños y niñas, y han arrasado con la idea de la libertad de Bolívar.
+
+Pues entonces esa diferenciación entre Gobierno y poder se vuelve muy clara hoy, porque qué diría Bolívar, aquí entre nosotros, en este palacio que nunca conoció, porque si acaso llegó a conocer fue la Casa de Nariño, que es mucho más modesta que este edificio sin alma, por donde pasan fantasmas del autoritarismo, del despotismo.
+
+Le​vantar de nuevo la bandera
+​Bolívar diría, 'levantaos de nuevo'; qué les diría a los negros si no 'les llegó la hora de la emancipación'; y qué les diría a los indígenas si no era que 'ustedes tenían la razón, había que equilibrar al ser humano con la naturaleza'; y qué les diría a los mestizos gobernados como si fueran ciervos si no 'llegó la hora de nuevo de levantarse y alzar la bandera'.
+
+Pues, alzar la bandera un poco es firmar este Decreto, ya verán la discusión que provoca. Hasta intentarán tumbarlo los que se creen monárquicos, porque dirán, 'uy, cómo, los indígenas tendrán autoridad ambiental, y nuestras instituciones aristocráticas que viven robándose la plata, ¿qué?'.
+
+Ya verán la pelea que habrá, y me recordarán en unos días apenas, en unas semanas. Pero está bien que esto sea un levantar la bandera, porque si lo tumban una vez, volverá a hacerse, y volverán quizás, y hasta que los derrotemos. Porque nadie puede enseñarle a cualquier colombiano y a cualquier institución colombiana o latinoamericana, cómo se construye el equilibrio vital entre ser humano y naturaleza que los pueblos indígenas de Colombia y de América.
+
+Así que este Decreto es indigenista, sí. Otras comunidades nos demandarán igual poder, y habrá que lucharlo. Y la población al final dirá, 'es correcto o no es correcto' que los pueblos ancestrales tengan poder en Colombia.
+
+Y nosotros diremos que es correcto porque no tenemos otro camino, lo demás se llama esclavitud, sojuzgamiento, seres humanos arrodillados a la fuerza y quizás asesinados sin quererlo.
+
+A esos pueblos hoy los reivindicamos firmando este Decreto, que ya es un Decreto y cobra su vida jurídica, su vida dentro de la sociedad colombiana. El que las autoridades indígenas tengan en sus territorios igual poder que las Corporaciones Autónomas, que en su mayoría inmensa no han demostrado ser instrumentos de cuidado de la naturaleza, sino lo contrario, vía corrupción se han arrodillado a la codicia, y esa codicia ha entregado nuestra hermosa naturaleza a la destrucción.
+
+Gracias por haberme escuchado, muy amables.

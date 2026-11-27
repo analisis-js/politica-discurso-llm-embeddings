@@ -1,0 +1,143 @@
+https://www.presidencia.gov.co/prensa/Paginas/Alocucion-del-presidente-de-la-Republica-Gustavo-Petro-Urrego-250607.aspx; https://youtu.be/pocZmmPX2CQ
+
+Alocución del presidente de la República, Gustavo Petro Urrego al término de un consejo extraordinario de seguridad en Bogotá
+
+Bogotá, 7 de junio de 2025
+
+Buenas noches, colombianas y colombianas. Este es un día de dolor de la nación, de su alma. Lo primero que tenemos que orar y juntarnos Como acabamos de realizar esta reunión con toda la fuerza pública, los organismos de inteligencia, consejo de seguridad extraordinario, la compañía del alcalde de Bogotá, el cruce de las primeras informaciones, de ver los videos, de mirar a los ojos al asesino que es un menor de edad y está vivo y capturado por un agente de la UNP, Unidad Nacional de Protección, Ricardo Céspedes se llama. Y que ya circula obviamente por redes en estos tiempos modernos.
+
+Pero nosotros queremos, antes que nada, garantizar la más absoluta transparencia del Estado en su competencia para investigar y lo lograr llegar a los autores intelectuales del intento de homicidio, hasta ahora.
+
+El doctor Miguel Uribe Turbay está vivo. Y entonces toda la actividad hoy se concentra fundamentalmente en que siga vivo, cuya primera línea de acción es el personal de salud de la entidad que hoy lo cuida, de las más altas calidades, entidad privada, de salud, de muy antigua tradición en Colombia y con los mejores pergaminos humanos y tecnológicos para cuidar de la vida de una persona. Ha expedido su primer comunicado como tiene que ser, solo en nombre de la ciencia médica y definiendo en qué están en este momento.
+
+Por tanto, lo que hoy más cabe es que todos los colombianos nos centremos con la energía de nuestro corazón, con nuestras ganas de vivir energías que juntas operan, en que siga vivo el Dr. Miguel Uribe Turbay. Esa es la prioridad científica, humana, social. Que el asesino no haya cumplido con su misión pagada. Y detrás de esa persona que se llama Miguel Uribe Turbay Cualquiera que sea su pensamiento político y sus posiciones antes que nada es persona, ser humano y por tanto tiene el derecho absoluto a vivir y que en un momento como estos todo lo que hagamos esté concentrado en que pueda seguir viviendo y abrazar a su familia y a sus hijos, y hacer lo que políticamente y libremente crea que debe hacer sin interferencia nuestra. Todos sabemos que hay una distancia política entre la familia Uribe Turbay y el Gobierno.
+
+Política en paz, sin violencia
+
+Pero es distancia política, y la política es libre y siempre hemos defendido que sea libre de violencia. Por eso hicimos la paz. Una política sin violencia es una sociedad sin violencia. En la política se condensa la sociedad.
+
+Y por eso tengo también que rechazar el intento oportunista, bajo, de truhan, de utilizar con fines políticos el dolor de la familia y del mismo Miguel Uribe Turbay. No es el fin político lo primero, hoy es la vida en el Gobierno de la vida, lo primero que defendemos es la vida misma. La vida de la víctima que en buenas manos está y confiamos, y la vida del asesino, que es un menor de edad, un niño. Las leyes y las normas nos obligan a proteger al niño por ser niño porque si no cuidamos los niños de la patria, no tendremos patria.
+
+Todos los protocolos de investigación al máximo nivel con la más alta calidad profesional, trabajando en equipo entre todas las agencias de Inteligencia, se tienen que concentrar a partir de ahora en descubrir quién es el asesino intelectual.
+
+No debe haber recurso que se escatime, ni un solo peso, ni un solo tiempo de energía, para dedicarla exclusivamente a encontrar el culpable intelectual con su nombre propio en el lugar donde viva, sea en Colombia, sea en el extranjero.
+
+Hay un método científico de investigación, y en estos momentos no tenemos más que agarrarnos de la ciencia y de los protocolos científicos. Y para eso necesitamos los mejores profesionales, las mejores profesionales, de todas las entidades del Estado para descubrir al criminal.
+
+Hasta ahora no hay más que hipótesis, y las hipótesis no pueden ser descartadas de antemano porque viciamos la ciencia de la investigación. Todas deben ser examinadas hasta que la maduración misma de la investigación nos lleve de la hipótesis a la certeza, y por tanto, a la acción penal y a la individualización de los criminales.
+​​
+El uso político de estas horas de un hecho tan grave y doloroso como que un dirigente político de Colombia, no importa su posición, su color de camiseta, su pensamiento, haya sido víctima de un intento de asesinato que ojalá no prospere, y el Estado todo de Colombia se pone al servicio de la vida.
+
+La primera responsabilidad del Presidente de Colombia es cuidar la vida de su propia oposición, es el deber del demócrata hacerlo, respetarlo, y hacer que viva y no escatimar ningún esfuerzo en ellos. Y la verdad es aquí esencial.
+
+Investigar a la escolta de Migue Uribe
+
+He ordenado que se investigue a la misma escolta, que encontremos de acuerdo a los protocolos de seguridad las fallas que hubo porque siempre que un asesino puede actuar sobre una persona protegida, previamente hay una falla de seguridad, y son servidores públicos, son pagados por el pueblo de Colombia. Tienen una manera de hacer las cosas, unos protocolos de seguridad que, indudablemente, en este caso se incumplieron. Habrá responsables, empezando por los responsables de su seguridad.
+
+El deber del Estado es cuidar como mamás a los miembros de la oposición de Colombia porque si ellos no tienen libertad y vida, pues tampoco Colombia tendrá libertad ni vida, y caeremos en lo que ya conocemos en la historia de Colombia, las hogueras humanas, los cuerpos humanos, cadáveres por montones haciendo pila sirviendo de combustible. Y no podemos dejar prosperar ese incendio voraz, aniquilador de una sociedad.
+
+La política, al concentrar la sociedad misma, sus diversas maneras de pensar, entonces tiene que ser libre, completamente libre, porque si se sojuzga, y el mayor sojuzgamiento es quitar la vida, pues entonces tampoco la sociedad colombiana tendrá libertad piensen lo que piensen dicen los colombianos como se les dé la gana. 
+
+Por eso debo rechazar los intentos de utilización política. Me aparecen asquerosos, de truhanes, de ratas de alcantarilla. No podemos hablar. Sospechas tenemos todos. Yo tengo las mías. Los patrones del crimen repiten los patrones de la muerte de la mayoría de los dirigentes políticos de Colombia:
+
+Menores de edad utilizados, menores asesinos que saben matar como el mejor de los asesinos, pagos, porque su familia es pobre y que cambia la muerte de un colombiano por la vida de la mamá o de la familia. Una y otra vez se repite ese modelo y aquí volvemos a encontrarlo.
+
+Y claro, que uno puede decir como una primera hipótesis, pero solo una hipótesis, porque ninguna otra puede ser descartada, que tiene la marca de los asesinatos de los dirigentes políticos de Colombia que, como candidatos presidenciales, han caído bajo las balas, siendo todos ellos de las más diferentes posiciones políticas, porque los asesinos intelectuales quieren amedrentar la sociedad, quitarles libertad, hacerlos esclavos, juzgarlos a partir del miedo y del terror y cooptar el Estado para que el Estado, sirva al crimen.
+
+Y prácticamente he dedicado toda mi vida a descubrir esos nexos de cómo un Estado se puede volver un Estado criminal simplemente porque se alía con los criminales en algún nivel.
+
+Los 100 años de soledad
+
+Y esto no puede seguir, porque yo mismo en todas las plazas públicas donde voy siempre hablo de la tragedia de los 100 años de soledad que, escrito tan magistralmente por Gabriel García Márquez, nos muestra el alma colombiana en toda su profundidad, la hermosa belleza mágica de sus tierras, de su naturaleza exuberante de vida, de sus mujeres que aman a fondo, con franqueza.
+
+Y al mismo tiempo que florece la vida, el Eros en todo su esplendor, como casi en ninguna otra parte del mundo, la inmensa facilidad que tenemos los colombianos de matarnos entre sí por codicia, y a veces por nada.
+
+Cuidar la vida de los niños
+
+Y por tanto aquí todas las hipótesis están abiertas, la investigación hasta ahora comienza con los primeros indicios. Videos, testigos y el mismo menor capturado, el asesino material, que fue pagado indudablemente y que alcanza a oírse su voz en algunos de esos videos diciendo que va a dar los nombres.
+
+Y por tanto la primera responsabilidad del Estado de sus instituciones es cuidar la vida del menor porque es un niño. Y así nos parezca terrible, los niños se cuidan en Colombia porque si no cuidamos los niños ni como familias ni como estado, pues no tendremos patria, no tendremos Colombia, Todos al final, incluidos nuestros hijos, terminarán asesinados, y mi deber es el bien supremo de la nación y el bien supremo de la nación, como dijera Bolívar, es la paz, no matar.
+
+Como dicen las antiguas religiones, es imperioso que en la tierra de la vida, en el corazón del mundo, no se mate, porque si no, esa energía fatal matará toda la humanidad.
+
+Tenemos la responsabilidad, como dicen los mamos de la Sierra Nevada de Santa Marta, de cuidar la vida de toda la humanidad que comienza por cuidar a las gentes que habitan en el corazón del mundo, en el cruce de todos los caminos, en el centro geográfico del planeta, donde la vida es más bella que en ninguna otra parte y que tenemos que cuidar.
+
+Y por tanto cuidar tanto a Miguel Uribe Turbay como a su presunto asesino, un niño pagado, calculador, frío, como tantos otros, como el que como mató al comandante Carlos Pizarro y candidato presidencial, como los que mataron a Luis Carlos Galán cuyo hijo está aquí acompañándonos (Carlos Fernando Galán, alcalde Mayor de Bogotá), uno de los primeros hombres en levantar la voz contra la mafia, y se vengaron en él mismo, como todos los colombianos de aquellas épocas que vivimos recordamos, y nos llenamos de dolor y de respeto, porque la vida humana en las personas es respetable, sujetos de derecho, el principal de los cuales es la vida y el Estado está al servicio y el gobierno está al servicio de la vida y de nada más.
+
+La investigación
+
+Yo creo que avanzaremos rápido. Están todos ustedes, servidores públicos uniformados y no uniformados, la prioridad, porque es fundamental encontrar al asesino con nombre propio, esté donde esté, y rápidamente, porque cuando se mata a un dirigente político, y esa es nuestra historia desde los tiempos de Bolívar, que pudo haber sido asesinado por sus propios hijos, por su propia patria que fundó, desde ahí comenzó nuestra tragedia.
+
+Nos matamos con facilidad, y la muerte de un dirigente político cualquiera que sea su pensamiento puede originar una vorágine de violencia si no controlamos, si nos dejamos llenar el corazón de la venganza y del prejuicio y del odio, porque por odio político nos hemos matado los colombianos, y ya van más de 700 mil personas colombianas asesinadas desde un 9 de abril de 1948, el día que mataron a otro gran dirigente político de Colombia.
+
+La historia se repite y por tanto nuestro deber es detener esa repetición, porque nuestra obligación es la paz, no la violencia, no la muerte. Nuestra militancia es la vida, somos guerreros de la vida y tenemos que ser tercos hasta lograrlo, nosotros o los que nos sobrevivan. Y así ha sido.
+
+Y por eso Colombia no perece porque resiste a la muerte. Porque es el país de la belleza y de la vida, y también los seres humanos que habitamos tenemos esas energías que hacen florecer una y otra vez en miles, millones de especies, la vida como en ninguna otra parte del planeta.
+
+Solidaridad con la familia Uribe Turbay
+
+A la familia de Miguel Uribe Turbay nuestro más profundo dolor y solidaridad. Sabemos qué pasa cuando se matan a uno de los nuestros o intentan matarlo. Lo hemos vivido casi todos porque también hijos de la violencia y la conocemos, y sabemos de su enorme potencial destructor de la sociedad cuando se convierte en venganza, y  el deber de cada uno de nosotros es no dejar que reine la venganza en nuestro corazón, sino solo el amor a los demás, piensen como piensen, actúen como actúen, porque Colombia se fundó bajo el sagrado principio y la bandera de la libertad, y por eso dimos la vida desde hace muchas generaciones: libertad, libertad y libertad, y no podemos quebrar el juramento.
+
+Codicia, el mayor enemigo de la vida
+
+El mayor enemigo de la vida en Colombia se llama codicia, y mata miles de personas. Codicia es la enemiga de la vida, y no podemos olvidar eso, nunca. El antagónico de la vida es la codicia.
+
+Cuando el corazón se deja dominar de la codicia, el ser humano se vuelve un asesino, feroz, hasta un genocida, un animal de la muerte, un heraldo de la muerte. Los primeros que tenemos que protegernos de la venganza somos nosotros mismos, los que dirigimos el estado en cualquiera de nuestras funciones. Es de la más alta responsabilidad. Si la gente del Estado no se deja llevar de la venganza, Colombia tiene una oportunidad, y seguiremos siendo tercos por la paz, porque la paz jamás es derrotada. 
+
+Porque es el bien supremo de la humanidad y los hombres de paz, que somos nosotros, también padres, que tenemos hijos, sabemos qué significa la paz, que no es más, que nuestros propios hijos puedan vivir y ser felices y ser libres porque esa es Colombia, la verdadera Colombia, la Colombia de Bolívar, no de los asesinos. 
+
+Derrota del Estado
+
+No quiero hablar más porque solo tenemos hipótesis, y la primera es investigar a nuestra propia gente. La seguridad que tenía el precandidato presidencial Miguel Uribe de Turbay era suficiente. Hicieron lo que tocaba hacer. El acto no estaba programado, y ahí su veneno de no programar los actos. Yo una y otra vez lo hago porque siento que estoy más seguro en un acto no programado que en uno ha avisado porque los asesinos tienen tiempo de organizarse. 
+
+Este no estaba programado, nadie sabía, fue espontáneo. Querían caminar las calles del barrio, un barrio hermoso y clásico de Bogotá, el barrio Modelia, de clase media. Y allí casi encuentra la muerte el candidato. Lo venían siguiendo los asesinos.
+
+Porque el acto no estaba programado. No hay otra manera, sino un asesino que sigue a su víctima, paso a paso, y calcula el mejor momento, y lo encuentra, y ahí actúa, y actuó. Y no pudimos detenerlo si no hasta después.
+
+Y es un fracaso del Gobierno claro, del Estado claro, de la nación toda, cada vez que muere acribillado o intentan acribillar, a un hijo de la patria, es la sociedad toda de Colombia, la que es derrotada, porque somos una sociedad de la vida y cuando nos cobran uno de sus integrantes, venga de donde venga, piense lo que piense, nos derrotan a todos. Y hoy nos derrotaron. 
+
+Pero las derrotas hay que convertirlas en victorias. De las derrotas se aprende y somos mejores aprendiendo de las derrotas que incluso de las victorias. Y este es un momento de aprender, de enseñar, de educarnos en las técnicas de la vida y del Eros y no en las técnicas del Thanatos, como decían los griegos y Freud. Y por tanto desatamos la vida, de nosotros solo puede esperarse que desatemos la vida.
+
+Y hoy dado a la calidad del dirigente de una familia presidencial, no somos aristócratas, no creemos en monarcas, somos republicanos, pero sabemos qué significa una familia presidencial y qué pasa cuando se atenta contra ella, de alguno de sus integrantes, y de la imperiosa necesidad de cuidar antes que nada y me disculpan las familias presidenciales porque condensan partes de la sociedad colombiana y cuando matan a alguno de sus hijos matan a la sociedad colombiana toda, y nos derrotan.
+
+Y en esto tenemos que ser claros y transparentes, no importa los insultos y los gritos que genera el dolor siempre, la ira, el odio, y que puede llevarnos a más violencia, y nosotros no somos hombres de violencia, sino que somos hombres de paz y tenemos que construir la paz. Es obligatorio. Y la paz no es que se mate al otro ser humano, jamás. Ni permitirlo, ser capaces de detener al asesino antes de que dispare, y nos derrotaron. 
+
+A la familia de Miguel Uribe Turbay, conocí a su madre asesinada también, y fue por la mafia de Pablo Escobar, por codicia, hasta llegaron a acusarnos en aquel entonces. Y el único contacto que tuvimos con Diana Turbay es que bailamos música colombiana en las montañas, Porque tanto ella como nosotros queríamos la paz. Y así lo quiso su padre en los últimos años. Cambió completamente.
+
+Porque también es respetable cambiar porque la vida fluye como los ríos y los ríos no son predecibles, tienen un cauce que puede cambiar porque están vivos, la vida misma es un río. Diana Turbay fue una guerrera de la paz hasta el final de sus días. Y llevó a su padre de posiciones guerreristas y erróneas: 10 000 colombianos fueron torturados, bogotanos, a cambiar el rumbo, y entonces en vez de la tortura fue la el diálogo, la conversación, el pacto, y salvar muchas vidas humanas entre la familia Turbay y nosotros.
+
+Y nos volvimos amigos al final de los tiempos, porque todo se puede volver en su contrario, dice la dialéctica filosófica del maestro Hegel, que yo sigo como mi línea vital de pensamiento: todo se puede volver en su contrario, el principio del movimiento es la contradicción, y por eso las cosas se mueven y están vivas, y cuando eso desaparece llega la muerte y lo inerte.
+
+Y nosotros, soy yo, el presidente de Colombia, es un dialéctico, como Heráclito, como Hegel, y sus descendientes de pensamiento filosófico similar. Y yo sé que no puedo aburrir a los colombianos con esto, a veces muchos no han tenido la oportunidad de leerlos, que yo sí.
+
+Y por eso la capacidad de análisis a veces se deja ganar del prejuicio y del odio, y ese es el camino más fácil para matar más seres humanos en Colombia. Y hay que detenerlo. 
+
+No es el propicio, no es el odio, lo que nos puede alumbrar la investigación, es la linterna de Diógenes, que no es más que la ciencia, y a la ciencia hay que aplicar la profundidad para descubrir al criminal intelectual, viva en Colombia o viva en el extranjero. No tenemos más que hipótesis. Y hay que decir la verdad, bueno. Ya llegaremos a las certezas.
+
+Respeto y solidaridad
+
+A la familia de Miguel Uribe Turbay, mi dolor y mi solidaridad, con compañeros que hemos sido de este tipo de acontecimientos, de niños que matan nuestros dirigentes, nuestros padres, nuestros comandantes que amábamos y que eran importantes todos.
+
+Si hubieran podido seguir vivos, nos estarían ayudando y seríamos mejores, pero los mataron, De todos los colores: Álvaro Gómez es asustado que se volvió mi amigo al final de los tiempos antes de irme de Colombia y hablábamos mucho en su biblioteca.
+
+Y a esa biblioteca llegó el comandante Chávez cuando no era presidente porque quería aprender qué habíamos hecho nosotros en la Constituyente ahora todos están muertos. Solo sobreviven ahora. Y hay que rendirles homenaje porque hicieron la Constitución del 91 todos pactando, juntándose, acordando.
+
+No fueron los disparos, fueron las palabras. Y ahí empezamos a respirar esperanza. Nos enseñaron que ese era el camino y debemos preservar ese camino. Los contrarios pueden dialogar y no matarse entre sí. Y todo contrario puede volverse en su contrario por la dialéctica de la vida.
+
+Y no podemos cerrar el cerebro y el corazón a eso porque siempre habrá esa posibilidad en que los colombianos independientemente de cómo vivamos y pensamos, nos amemos, nos queramos, nos abracemos y seamos compañeros de la vida y protejamos antes que nada, antes de nuestras discusiones, la vida del pueblo colombiano y de cualquiera de sus integrantes. 
+
+Por eso mi dolor, porque lo siento como si fuera mío el dolor de ellos. Siempre será más grande el de ellos, su familia y merecen nuestro respeto y nuestro silencio, porque cuando una persona tiene dolor lo mejor es callarse y abrazarla, así sea en la distancia porque las energías llegan, y mi energía está con la familia Turbay que tantos muertos ha tenido en su familia, asesinados todos. 
+
+Y en la familia Uribe de Antioquia, son hermanos de este viaje, de la vida, difícil. Nadie vive fácil en Colombia, pero somos capaces e inteligentes para sobrevivir. Y espero que Miguel Uribe Turbay sobreviva, eso es lo que más quiero antes que nada, y creo que eso es lo que debe sentir toda la sociedad, toda, que antes que nada y juntando nuestros corazones y nuestra energía, algunos oraciones, otros reflexiones, juntemos las energías que lo van a ayudar para que esté vivo y no seamos derrotados totalmente.
+
+Y a Miguel Uribe Turbay, que dicen que está consciente, quizás escuche estas palabras, no sé, de mi corazón, que también tiene sangre árabe como casi todos nosotros, porque los marineros que llegaban en los barcos de la Conquista tenían dos clases de hombres: los castellanos que eran los jefes y patrones y venían por el oro, y los trabajadores de los barcos que eran árabes recién conquistados y derrotados, pero que no se querían ir de a España y se quedaron allá. 
+
+España aún niega sus raíces árabes, pero como el primer territorio conquistado fue el Caribe colombiano y en los barcos venían los marineros que encontraron una tierra bella y un mar hermoso y no un desierto, se quedaron, se mezclaron con nosotros, tuvieron hijos, gritaron glorias a la vida y bailaron y nos enseñaron sus músicas y sus tradiciones, y nosotros la fusionamos en el pueblo caribeño de Colombia que es el único que tiene en todo el Caribe sangre árabe, y harta. 
+
+Por eso somos hermanos de los árabes, nos entendemos, bailamos juntos, nos alegramos ante la vida, podemos caminar sus desiertos, allá hay un batallón en el Sinaí, donde estuve. Y ellos no se entienden y nos quieren. 
+
+El gran inspirador de la literatura árabe contemporánea, se lo pregunté a un sabio palestino en Qatar, es Gabriel García Márquez, y yo entiendo por qué, el hombre más universal de Colombia que segurísimo también tenía sangre árabe y los entendía, como nosotros somos capaces de entenderlo y entender su dolor de patria bajo el genocidio. 
+
+Por eso a Miguel Uribe Turbay, descendiente de árabes, hermano, por tanto, de sangre. Le digo: ‘La paz sea contigo’.
+
+Gracias, muy amables.
