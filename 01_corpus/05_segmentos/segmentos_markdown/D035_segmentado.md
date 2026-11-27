@@ -1,0 +1,150 @@
+# Documento segmentado
+
+## Identificación del documento
+
+- id_documento: D035
+- nombre_archivo: DOC035_texto005_texto006.txt
+- numero_palabras_documento: 2218
+- numero_segmentos: 5
+
+---
+
+## Segmento D035_S001
+
+- orden_segmento: 1
+- numero_palabras_segmento: 492
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+https://www.presidencia.gov.co/prensa/Paginas/Alocucion-del-presidente-de-la-Republica-Gustavo-Petro-Urrego-250311.aspx; https://youtu.be/NgGqUaTgTM4
+
+Alocución del presidente de la República, Gustavo Petro Urrego
+
+Bogotá, 11 de marzo de 2025
+
+Buenas noches, colombianas y colombianos. En el año 2021, Colombia vio, participó, fue testigo y protagonista al mismo tiempo, del estallido social. Allí, unos criticando, otros apoyando.
+
+En general, la juventud de Colombia decidió que era hora de abrir las oportunidades para ella y para el país. Al lado se juntaron los indígenas, al lado se juntaron los obreros, al lado se juntaron las amas de casa de los barrios populares, las mujeres jóvenes, porque sentían que era el momento después del Covid, después de la enfermedad, después de un Gobierno que ante la enfermedad quiso poner impuestos a la sopa y a la comida, que era el momento ante tanta desigualdad y hambre generada por la injusticia, por la tiranía y por la misma enfermedad, que había que cambiar a Colombia.
+
+Pocos, quizás, entendieron ese mensaje popular, quizás lo único que pensaron en las alturas del Gobierno y del Estado de ese entonces era que había que matar, era que había que encarcelar a miles, era que había que quitar ojos, era que había que envenenar con gases los barrios populares, era que había que enseñarle que hablar es pecado y crimen, y los condenaron, incluso, a la cárcel, a la muerte.
+
+No supimos quizás entender como sociedad qué significaba el mensaje central de esa juventud y de ese pueblo que de los rincones de las grandes ciudades de Colombia salían a hacer una barricada y prender una hoguera. Solo después, apenas unos meses después, y porque quisimos que no hubiese violencia en Colombia sino que se abriesen caminos pacíficos, siempre hemos creído que la paz es la solución de Colombia, entonces le pedimos a esa misma juventud, a ese mismo pueblo que fuera a las urnas y decidiera su futuro.
+
+Y fueron, y decidieron su futuro con paz, con esperanza, con alegría, votaron por el cambio de Colombia, no solo se movilizaron sino que votaron y por primera vez en muchas décadas se construyó un Gobierno progresista que, bajo mi responsabilidad, ha gobernado este país en los últimos años. No hemos querido defraudar esa ilusión y esa esperanza del pueblo.
+
+Las reformas sociales
+
+Difícil si nos ha tocado y se ha visto por qué, pero la esperanza es fundamental en un pueblo que quiere construirse, en una nación que quiere ser grande, y por eso las reformas que pidió ese pueblo, que no hubiera esclavitud en la fábrica o en el taller, que a la mujer no se le acosara sexualmente por querer trabajar por un empleador, por un bandido, que al viejo se le diera un plato de comida y no se muriera triste en una plaza de mercado o en un parque solitario, quizás alcoholizado, ajeno al afecto, triste y muriendo.
+
+---
+
+## Segmento D035_S002
+
+- orden_segmento: 2
+- numero_palabras_segmento: 447
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Que a la mujer se le dieran derechos laborales, que a la gente que ha sido excluida, y son la mayoría, de la posibilidad del derecho a la salud pudiera tener un médico que se acercase a la casa, así esa casa estuviera situada en lo más lejos del planeta, de nuestro país, la tierra. Allá, cruzando una selva, allá en el desierto, allá en el lugar donde nunca ha mirado el Gobierno, en donde no llega una EPS, allá donde vive el pueblo de Colombia, quería que hubiese una reforma en donde la salud y, por tanto la vida, fuese posible.
+
+Esas reformas las presentamos al Congreso de la República hace dos años. Le pedimos al pueblo de Colombia apoyarlas y pedimos y solicitamos consensos, un acuerdo nacional alrededor de las reformas.
+
+Lo que recibimos fue burla, engaño, grandes próceres, entre comillas, de la oligarquía colombiana tratando de impedir que se hicieran las reformas en Colombia, tratando de mantener el orden injusto que dejaron después del Covid y que quizás ya tiene un siglo en Colombia, dos siglos. Un orden que nos ha llevado a ser el país más desigual del mundo, pero que también nos está llevando, por la misma razón, a ser uno de los países más violentos.
+
+La vida pareciera escaparse en el país de la vida, en el país de la belleza, en donde por circunstancias geológicas hay como una especie de explosión vital de la naturaleza, pero al mismo tiempo los seres humanos que viven en esa explosión vital de los verdes, de la naturaleza y de la vida, se matan entre sí exclusivamente por codicia.
+
+Y esa muerte por codicia no es más sino la autodestrucción, la degeneración de nuestra nación, la posibilidad de perder una patria.
+
+La igualdad social, la justicia social, la justicia ambiental, se levantaron como banderas políticas y ganaron las elecciones. Y el pueblo de Colombia mayoritariamente en campos y ciudades le solicitó al Estado construir justicia social, justicia ambiental.
+
+Y le dijimos a la oligarquía, vengan, hablen, conversemos, lleguemos a un acuerdo. Colombia no puede seguir siendo una sociedad de esclavos y de esclavas, de siervos y de siervas. Colombia tiene que ser una sociedad donde el pueblo pueda decidir, porque eso es una democracia.
+
+Las reformas en el Congreso
+
+Y presentamos los proyectos al Congreso después de las burlas de los propietarios de la gran prensa, de los propietarios del capital en Colombia, que viven muy bien porque han concentrado la riqueza de todas y de todos en sus manos.
+
+El Congreso de la República hizo una labor parcial. La Cámara de Representantes aprobó todas las reformas que le presentamos para construir justicia social.
+
+---
+
+## Segmento D035_S003
+
+- orden_segmento: 3
+- numero_palabras_segmento: 452
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Las reformas presentadas no son un capricho del presidente, no son un devaneo ideológico, no es cierto que sean una improvisación, las ha discutido el mundo y muchos países la están implementando porque ya fracasó la otra idea creada en 1993, la de que un mercado actuando simplemente le iba a garantizar los derechos fundamentales a cada ciudadana y ciudadana de Colombia, y no fue cierto.
+
+Una minoría apenas se podrá pensionar en este país si no hay una reforma pensional. ¿Y por qué entonces no podemos hablar del derecho a pensionarse en Colombia, como sí se habla en la mayoría de los países del mundo? ¿Y por qué no podemos pensar que hay un derecho a la salud y no negocio, simplemente, y que una persona que se enferma pueda ser salvada si la ciencia y la tecnología lo permite, y no muera simplemente porque tiene que esperar a un negociante para ver si sus costos de su enfermedad son demasiado altos y se le disminuyen las ganancias? Para ver si la fábrica deja de ser una esclavitud, si el trabajo deja de ser esclavo.
+
+¿Cómo así que Colombia tiene la jornada más alta de la OCDE, y la más baja productividad? ¿A quién se le ocurrió que en el siglo XXI las ganancias salen de tratar como esclavos a los trabajadores y hacerlos trabajar entonces 12 horas, 13 horas, y no pagarles sus horas extras, ni el trabajo de sus festivos, no darle el derecho a una mujer cuando menstrua que puede estar en su casa descansando, porque se bajan las ganancias y la mujer tiene que aguantarse entonces?
+
+¿O que un aprendiz joven tenga que ser tratado casi sin salario a pesar que trabaja para un patrón? El primer empleo no es esclavitud, es derecho, y por tanto debe ser tratado con la dignidad de cualquier trabajador o trabajadora, no por ser joven se es esclavo.
+
+¿O cómo se les ocurre decir que entonces se acaba el empleo si los médicos o las médicas residentes reciben un salario? Lo que nos están gritando hoy en la cara es que Colombia no puede ser justa. Algunos congresistas, incluso levantando la cruz, le rezan es al rico Epulón y no a Jesús, el carpintero.
+
+Algunos congresistas están viciados por la codicia porque reciben dinero de quienes le están quitando los derechos al pueblo, como sucedió con el dueño de Colsánitas, rompiendo por completo la constitución de Colombia.
+
+¿Qué hacemos entonces? No es irnos a la casa, no es decir los jóvenes que murieron en el estallido social murieron y adiós. No es pensar que hay que burlarse del voto popular del año 2022. No señores ni señoras.
+
+Que el pueblo decida
+
+---
+
+## Segmento D035_S004
+
+- orden_segmento: 4
+- numero_palabras_segmento: 463
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+El país tiene que seguir adelante y con esperanza y con paz, con alegría. Esperanza es fundamental y por eso este Gobierno no va a dar marcha atrás en las reformas, pero sin bobería, porque ya sabemos que las hunden cada vez que presentemos las reformas, porque más vale el billete que la identidad y la orden constitucional de legislar a favor del interés general. Legislan algunos a favor del business. La codicia les embarga el corazón y la codicia mata la vida.
+
+Nosotros hemos leído leyes, hemos buscado en la constitución caminos que le permitan al pueblo decidir sin intermediarios. Que sea el pueblo el que decida si quiere la reforma pensional o no, si quiere la reforma a la salud o no, si quiere la reforma laboral.
+
+Prácticamente convocar al pueblo que decida si quiere ser esclavo o quiere ser libre y digno. Es al pueblo al que le corresponde esa decisión y en esa medida hemos convocado al pueblo a las calles, a movilizarse, a la señora que puede recibir un salario digno y no un contrato de tres meses, al joven que puede tener un primer empleo con salario real, al vendedor ambulante, al pequeño empresario que saben que si el pueblo de Colombia tiene mejores ingresos venderá más y su empresa será más grande.
+
+La empresa es más grande no porque se le rebaje el salario a los trabajadores, sino porque si los trabajadores de Colombia tienen mejor salario compran más. La empresa se agranda si vende más, es la ley del capitalismo y eso implica salario digno, jornada laboral digna, dignidad.
+
+Invito al pueblo a movilizarse, a los indígenas, a las calles, al campesinado, a las calles, porque quieren mantenerlo sin pensión. A toda la población rural que le han quitado el puesto de salud, que no hay el hospital de primer nivel porque prefirieron llevarse el dinero público a hacer campos de golf en Miami y a tener jet particular.
+
+Se robaron el dinero de la salud y hay unos congresistas que quieren pagos porque se sigan robando el dinero de la salud. ¿Y qué pensar, entonces, de convocar al pueblo obrero, al pueblo trabajador, a la gente asalariada? Porque tener salario digno no es pecado, es dignidad y porque Colombia puede crecer así, a través de la dignidad.
+
+Vamos a convocar a una consulta popular
+
+Vamos a convocar a una consulta popular. Es el Senado en su plenaria a la cual le quisieron impedir la discusión de las reformas por ocho congresistas de la Comisión Séptima la que debe decidir en un concepto favorable y en una sola votación antes de un mes.
+
+El presidente de Colombia presentará la convocatoria a una consulta popular para las reformas sociales que implican la justicia social en Colombia.
+
+---
+
+## Segmento D035_S005
+
+- orden_segmento: 5
+- numero_palabras_segmento: 364
+- observaciones_segmentacion: Segmento final
+
+### Texto
+
+Y esa, esa consulta popular empieza ya, con la movilización callejera. Se burlaron del acuerdo nacional, entonces que el pueblo decida. El pueblo es la base de la soberanía, el pueblo es la base de la institucionalidad, el pueblo es la base de la democracia, dice la Constitución Política de Colombia, y estamos obedeciendo la Constitución.
+
+Por tanto, si hay un bloqueo institucional contra este Gobierno porque decidieron burlarse de las juventudes que salieron en el estallido social del año 2021, porque decidieron burlarse del mensaje central del voto popular en las elecciones presidenciales del año 2022, porque quieren sacarle el cuerpo a reformar a Colombia para que sea justa, viva, y en paz, entonces, le toca al pueblo romper ese bloqueo institucional.
+
+Un bloqueo institucional es una dictadura del establecimiento de los ricos Epulones de Colombia que no quieren sino codicia y egoísmo.
+
+Pues le corresponde al pueblo romper esa dictadura, romper el bloqueo institucional en el que tienen sumido al Gobierno como una tenaza esperando dar el golpe de estado definitivo. No, lo que va a haber es democracia, lo que va a haber son cambios y transformaciones, Colombia lo necesita, y por eso, desde ya, no sólo la movilización, sino votar en las urnas de la consulta popular si se quiere ser esclavo o se quiere ser libre y digno en el trabajo productivo.
+
+La consulta popular es obligatoria una vez pase por la plenaria del Senado. Se realiza hasta dentro de tres meses y el Senado tiene un mes para decidir.
+
+Les pido a los partidos políticos no hacer caso del rico de Epulón, sino como ordena la Constitución, del interés general de la sociedad de Colombia. Si se le niega participar al pueblo de Colombia, estarían negando literalmente la paz, y este en el siglo XXI no es el momento para ello. Nos hemos matado por generaciones.
+
+Es el momento de la paz, y el momento de la paz sus páginas las escribe el pueblo de Colombia con su voluntad de decidir. Así que bienvenido a la consulta popular para las reformas sociales y bienvenido al pueblo de Colombia en las calles de toda Colombia.
+
+Gracias por haberme escuchado.
+
+---

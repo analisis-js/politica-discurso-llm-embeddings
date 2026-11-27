@@ -1,0 +1,148 @@
+# Documento segmentado
+
+## Identificación del documento
+
+- id_documento: D043
+- nombre_archivo: DOC043_suspension_salario.txt
+- numero_palabras_documento: 2088
+- numero_segmentos: 5
+
+---
+
+## Segmento D043_S001
+
+- orden_segmento: 1
+- numero_palabras_segmento: 441
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+https://www.presidencia.gov.co/prensa/Paginas/Alocucion-del-presidente-Gustavo-Petro-Domingo-15-de-febrero-de-2026-260215.aspx
+
+Alocución del presidente Gustavo Petro sobre suspensión del salario mínimo vital
+
+Domingo 15 de febrero de 2026
+
+Buenas noches, trabajadoras y trabajadores de Colombia, en general todo el pueblo de este país.
+
+Me dirijo en un domingo, día de descanso, para hablar del trabajo, que mañana comienza en sus jornadas, las cuales ya deben ser menores, con base en la reforma laboral que logramos aprobar.
+
+Lo que se viene presentando en medio de estas elecciones es una lucha por la distribución de la riqueza en Colombia, ligada al régimen pensional nuevo, que no se ha permitido volver ley aplicable, pese a que ya ha sido aprobada dos veces como ley por el Congreso. Darles pensión a las personas es un derecho fundamental del trabajador y de la trabajadora.
+
+Lo mismo viene sucediendo con la reforma de la salud, trancada en el Congreso de la República por la Comisión VII del Senado. Ahora incluso tenemos algún problema con el salario vital que decretamos.
+
+En estos días que han pasado todos los datos indican que no es cierto lo que venían pregonando ciertos sectores del gran capital especulativo de este país, en cuanto a que el salario vital iba a desatar una oleada de alzas en los precios, y que en tal medida iba a desatar un desempleo mayúsculo.
+
+Tocó traer a colación los estudios de un banco extranjero, el JP Morgan, un banco de inmensa dimensión internacional de Estados Unidos, que analizó el empleo para este año y dijo que la ruta de solidez del empleo colombiano está abierta, es muy sólida. Es la palabra que utiliza: sólida.
+
+Todo lo contrario del alarmismo con que se ha recibido el decreto del salario vital, alarmismo absolutamente dañino y contrario a la realidad de los datos.
+
+INFLACIÓN CONTROLADA
+
+En términos de inflación, ya tenemos la del mes de enero: crecieron apenas 0,25% los precios, y no debido al salario, sino debido entre otras causas al alza de la tasa de interés y a una escasez de alimentos por la estación, como el tomate y la yuca, sumado al crecimiento inusitado del precio de la carne de res, que fue del 11% en todo el año, cuando la inflación fue del 5%. Más del doble, y no tiene que ver con el salario vital sino con las exportaciones, que están creciendo. En mi opinión, esto debe correlacionarse con el mercado interno de Colombia, y en tal medida se van a expedir decretos en esa dirección, pero nada tiene que ver con el salario vital.
+
+---
+
+## Segmento D043_S002
+
+- orden_segmento: 2
+- numero_palabras_segmento: 480
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Es decir, la inflación del mes de enero nada tiene que ver con el salario vital. Y ahora vamos a observar la de febrero. Intentan cortar el decreto antes de que se muestren los datos, porque no quieren que la población colombiana se dé cuenta de que el salario vital nada va a recortar, ni el empleo, ni va a impedir que baje más aún la inflación.
+
+Un magistrado de nombre Juan Camilo Morales, que respetamos, emitió un auto de suspensión del decreto del salario mínimo vital. Ese decreto indudablemente no debió ser suspendido, es mi opinión personal, pero respetamos la del magistrado.
+
+No es una suspensión inmediata, me da ocho días para presentar un decreto transitorio, mientras el Consejo de Estado toma su decisión de fondo. Y para sustentar esa suspensión y cómo debe ser el decreto nuevo transitorio, me envía, como base, la sentencia C-815 de 1999 de la Corte Constitucional.
+
+Diré al respecto una palabra: la sentencia se llama C porque es de control Constitucional, o sea que es obligatoria en todo el país, y es del año 99, ya hace bastante tiempo. Ustedes dirán: ¿por qué nunca se ha tenido en cuenta? Porque hay un desacato permanente de los ministros de Hacienda durante los gobiernos pasados, respecto a la Corte Constitucional.
+
+Se hizo para calificar la constitucionalidad de una ley, que es la 278 del 30 de abril del 96, y dice, en forma completa, y lo voy a leer: que en caso de no haberse logrado consenso en la Comisión Permanente de Concertación sobre el salario mínimo, el Gobierno deberá motivar su decreto atendiendo -con el mismo nivel e incidencia, además de la meta de inflación del siguiente año-, a los siguientes parámetros. Estos deben tener la misma base ponderada para que yo tome una decisión, porque no hubo concertación.
+
+Y entonces dice: "La inflación real del año que culmina" fue de 5.2% según el índice de precios al consumidor, la productividad acordada por la Comisión Tripartita, que coordina el ministerio de Trabajo y Seguridad Social, aquí presente. Esa productividad es muy baja en Colombia, se halla estancada, y son precisamente esos móviles los que nos ha llevado a que, al subir el salario mínimo de manera sustancial, aumentara la productividad en Colombia.
+
+La contribución de los salarios al ingreso nacional se llama salario relativo, ministro, ligado a si crece o decrece el Producto Interno Bruto (PIB), que es como se llama el valor de la economía total y real, ¿no? Y quiero que ustedes escuchen bien esta palabra, que es la que no nos transmite el magistrado: y con carácter prevalente, es decir, por encima de las demás, no de manera ponderada, como dice aquí. Con carácter prevalente, dice y ordena la Corte Constitucional, habrá de reflejarse en el aumento salarial la especial protección constitucional del trabajo, artículo 25, Constitución de Colombia.
+
+---
+
+## Segmento D043_S003
+
+- orden_segmento: 3
+- numero_palabras_segmento: 457
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Y, óigame bien, está de por medio la necesidad de mantener una remuneración mínima vital y móvil, que se ordena en el artículo 53 de la Constitución de Colombia y que ya es obligatoria desde el año 1999, pero que los ministros de Hacienda nunca tuvieron en cuenta.
+
+Por eso ha relegado desde entonces el salario mínimo de la canasta vital de la familia: porque un trabajador tiene familia, y por eso ahora toca dar unos saltos. Los di en los tres primeros años: 17%, 18% real, y ahora, último año de mi gobierno, 23% real, para llegar al nivel de lo que llamamos un salario vital, que es lo que se ha decretado siguiendo la orden de la Corte Constitucional en su sentencia 815 y en los artículos 25 y 53 de la Constitución de Colombia.
+
+FUNCION SOCIAL EMPRESARIAL
+
+Además, debe tenerse en cuenta -y esto se los digo a los empresarios-, la narrativa permanente de los medios de comunicación que dominan los grandes empresarios de Colombia, los más ricos, olvidando que la empresa tiene una función social. Su función social es pagar impuestos, su función social es equilibrarse con la naturaleza y no depredarla, su función social es darles dignidad a las y los trabajadores que se emplean en la empresa.
+
+Entonces, dado que es una sentencia que nos ordenan, yo voy a aceptar que se genere un decreto transitorio. Primero, vamos a aclarar esto con el magistrado. Esto hace que de los ocho días se tengan que usar unos días más para que él nos explique por qué la frase del carácter prevalente no está en su auto.
+
+Nosotros de todas maneras lo tendremos en cuenta en el decreto nuevo, porque es orden de la Constitución y de la Corte Constitucional, mientras de modo transitorio se toma un fallo de fondo.
+
+Lo anterior significa que el salario vital se mantiene hasta que se expida el nuevo decreto, y el nuevo decreto va a mantener un salario vital, solo con los nuevos estudios que tienen que allegar el magistrado Morales, porque es él quien lo pide él. Las nuevas realidades económicas desde el día que yo firmé, harían pensar que no nos equivocamos, pero que puede modificarse el salario vital decretado de acuerdo con las nuevas realidades económicas.
+
+Para ello he convocado a que mañana lunes nos reunamos. Estará el ministro de Trabajo al frente de la Comisión de Concertación, que es tanto del movimiento sindical y como del empresariado de Colombia.
+
+Yo le he solicitado públicamente, al movimiento sindical y al empresariado de Colombia, que aprovechen esa reunión de concertación, porque quiero abrir el diálogo -que se había cerrado antes-, para la realización de un pacto por la vida.
+
+MENOR INFLACIÓN DEL SIGLO XXI
+
+---
+
+## Segmento D043_S004
+
+- orden_segmento: 4
+- numero_palabras_segmento: 465
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+El empresariado de Colombia puede tener varios caminos con el Gobierno nacional. Hasta ahora han funcionado, estamos creciendo al 3,5%, 3,1%. La cantidad de trabajo y de ocupación laboral ha aumentado como nunca antes, y la inflación ha bajado a un nivel que es de los menores en la historia de este siglo.
+
+Hemos descendido de 13% a 5%. ¿Qué es lo que impide bajar más? La tasa de interés del Banco de la República. Y quiero decirlo con claridad. ¿Qué es lo que impide crecer más? La tasa de interés del Banco de la República. La tasa de interés se está convirtiendo en una especie de ‘detente’ del crecimiento del empleo y de la caída de los precios en Colombia, por eso la OCDE tiene menores precios.
+
+Ahora bien, esto lo discutiremos con el empresariado y con la clase obrera. Se puede hacer un pacto, indudablemente escucharemos, pero inmediatamente después haremos el decreto nuevo, transitorio, ojalá como resultado de una concertación.
+
+Hay que tener en claro que a partir del decreto presidencial del 31 de diciembre del año pasado, en Colombia rige un salario vital, que es el mínimo vital de una familia, y que es móvil. Ese criterio no lo pusimos en el decreto, y yo creo que esta orden de la Constitución debe exponerse en el nuevo decreto. Móvil. ¿Móvil qué significa? Que, si varían las condiciones, se varía también el salario por decreto: debe mantener esa flexibilidad. Móvil significa que las condiciones variantes de la economía no deben impedir que el pueblo trabajador asalariado pueda llevar su canasta familiar vital.
+
+Son un guarismo, pues la canasta familiar vital está determinada por el DANE, lo expusimos en nuestra argumentación sobre el promedio de trabajadores por familia, y de ahí sale el salario mínimo vital. Lo podemos poner otra vez en discusión con el empresariado, con el movimiento obrero, y determinar si estamos en lo cierto o no, y si es necesario cambiar alguno de los porcentajes.
+
+PACTO PARA CONSTRUIR RIQUEZA
+
+Pero a los empresarios colombianos, quiero invitarlos al Pacto por la Vida. Pacto por la vida no es solamente un salario vital, dignidad para el trabajador, sino decir que los trabajadores y las trabajadoras pueden ayudar a construir la riqueza. Hoy construyen la riqueza, pero con hambre y desnutrición, y eso no es dignidad.
+
+Y que se ponga en discusión el tema de la tasa de interés del Banco de la República, que está ocasionando daños. El mayor es la revaluación del peso, porque les quita competitividad a las exportaciones y eleva el costo financiero. Nos está quitando competencia internacional en productos agrarios y hasta en el pago del arriendo, el pago de los arriendos en grandes cantidades de tierra agrícola, pues eleva los costos de producción de los alimentos.
+
+---
+
+## Segmento D043_S005
+
+- orden_segmento: 5
+- numero_palabras_segmento: 245
+- observaciones_segmentacion: Segmento final menor al mínimo; conservar si mantiene sentido
+
+### Texto
+
+El pago del arriendo está relacionado con la tasa de interés, porque la tasa de interés disminuye la compra de vivienda nueva. Así afecta a los productores de vivienda, y entonces los grandes arrendatarios se aprovechan subiendo los arriendos, y eso incrementa precisamente los precios en el mercado.
+
+EL JUEVES A LA CALLE
+
+Y discutamos también la reforma a la salud, qué queda. Discutamos por qué la Corte Constitucional no puede aprobar la ley, que ya por segunda vez aprobó el Congreso, y que es esencial para el crecimiento de la economía colombiana. Discutamos el ahorro en Colombia, que es la financiación de la inversión; discutamos la tasa de interés y discutamos el salario vital.
+
+El salario vital se acoge a la sentencia de la Corte Constitucional 815 de 1997. A partir de este gobierno es una realidad el salario vital en Colombia.
+
+Les agradezco su atención, buen descanso. Mañana estaremos pendientes del desarrollo de los acontecimientos. Pediremos una aclaración y el jueves los espero en todas las plazas públicas de Colombia. Convoca el presidente para defender el salario vital. No solamente argumentos jurídicos o económicos, que los tenemos todos, económicos, son también son de conveniencia, para el interés general, y todo lo anterior se resuelve también con la fuerza del pueblo trabajador.
+
+Necesitamos esa fuerza en la movilización, que ahora se volverá mucho más permanente, dado que no se puede perder la enorme conquista histórica de la gente trabajadora de Colombia.
+
+Gracias, muy amables.
+
+---

@@ -1,0 +1,256 @@
+# Documento segmentado
+
+## Identificación del documento
+
+- id_documento: D016
+- nombre_archivo: DOC016_intervencion_audiencia.txt
+- numero_palabras_documento: 3186
+- numero_segmentos: 7
+
+---
+
+## Segmento D016_S001
+
+- orden_segmento: 1
+- numero_palabras_segmento: 477
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+https://www.presidencia.gov.co/prensa/Paginas/Intervencion-del-Presidente-Gustavo-Petro-en-la-audiencia-publica-de-la-Cor-230811.aspx; https://youtu.be/Fj6ueGj36_s
+
+Intervención del Presidente Gustavo Petro en la audiencia pública de la Corte Constitucional, sobre el Decreto 1058 del 2023, de la declaratoria de Emergencia Económica, Social y Ecológica en La Guajira
+
+Bogotá, 11 de agosto de 2023.
+
+Señora Presidenta de la Corte Constitucional, Diana Fajardo Rivera. Magistradas y magistrados de la Corte Constitucional. Ministras, ministros y funcionarios del Gobierno Nacional y medios de comunicación y ciudadanía en general aquí presentes.
+
+Decir que La Guajira es más pobre que el resto de Colombia creo que resulta ya un lugar común.
+
+Todos sus indicadores sociales acumulados en el tiempo, que se podrían medir quizás en el índice de pobreza multidimensional, sería el mejor, hace que La Guajira casi en todos los sentidos sea más pobre, con más necesidades básicas insatisfechas, que el resto de Colombia.
+
+Eso viene de décadas atrás, es uno de los territorios excluidos del país. Tiene un agravante en relación a los demás territorios excluidos y es que, por cultura, su población indígena wayú, que es la población más grande indígena de Colombia, se dispersa en el territorio.
+
+Vive en rancherías, miles de ellas dispersas en la media Alta Guajira, complicando las posibilidades de solución a las necesidades básicas insatisfechas. Soluciones que no se pueden dar sobre la base de que la comunidad wayú se adapte a los patrones administrativos del centro de Colombia, sino que es el Estado el que tiene que adaptarse a la cultura y a la manera de entender el mundo de la población wayú.
+
+Y aquí las dificultades en la historia.
+
+Como tenemos que ver el tema agua y sobre todo dos fenómenos diferentes, que es el del Niño y el de la crisis climática, tienen razones de ser, motivos, causas diferentes, el uno del otro, y un poco en esto nos adentraremos y profundizaremos.
+
+Entonces, cómo estos fenómenos afectan la relación agua-comunidad, en una comunidad que tiene las vulnerabilidades que ya hemos descrito.
+
+Sólo por poner algunos ejemplos de esas vulnerabilidades, por ejemplo, en términos de la tasa proyectada de mortalidad por desnutrición –desnutrición que está asociada también al agua, muchos de los niños y niñas mueren, no porque haya una escasez de comida sólida, sino porque hay escasez del agua, y en el indicador en Colombia, uno y otro entra en la definición de muertes por desnutrición– estas tasas son 30 veces más altas que en el país, cuando se refieren a la población wayú en general, 30 veces más altas las tasas de mortalidad.
+
+Y no es porque a través del sistema de salud que tenemos bajo la Ley 100 no haya una erogación de recurso público, tal cual se hace con las demás regiones a través de la unidad de capitación.
+
+---
+
+## Segmento D016_S002
+
+- orden_segmento: 2
+- numero_palabras_segmento: 452
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Los sistemas administrativos del sistema de salud llegan a las EPS de La Guajira, incluso con unas unidades de capitación más altas que en el resto del país, tratando de esa manera de paliar el efecto, pero no se traduce en los indicadores.
+
+Es decir, a pesar de que hay más dinero promedio invertido, las consecuencias son peores, lo cual significa que los sistemas administrativos no están propiamente mirando las condiciones culturales de la población y se estrellan en su ineficacia para producir los efectos que todos querríamos, y es que disminuya la tasa de mortalidad por desnutrición, por ejemplo.
+
+Si se miran otros ejemplos como el PAE, el Programa de Atención Escolar, que también debería cumplir con el propósito estudiado en Bogotá, programado en Bogotá, tenemos que más del 20 % de la niñez en La Guajira, pero un porcentaje mayor cuando se trata de la población wayú repartida por el territorio, pues no tiene PAE. No le llega el programa tal cual se ha diseñado para departamentos del centro.
+
+Si miramos el de educación superior, pues tenemos que las tasas de cobertura, mientras en el promedio nacional llegan al 55 %, en la Guajira llega al 20 %. Pero si lo aplicáramos a la población wayú dispersa, la tasa de cobertura sería todavía muy inferior comparada con el resto del país.
+
+Y no voy a seguir en esta cuita.
+
+Ustedes me preguntaron qué pasa con estos indicadores y la migración.
+
+Y es un tema nuevo relativamente para La Guajira este cuadro que se elaboró para su estudio, fuente CISPRO, nos indica que por el año 2020, los grupos afiliados por carnets que entrega al Gobierno a la población, fundamentalmente venezolana, eran del orden de 7.490 en enero del 2020.
+
+Para marzo-junio del 2023 esta cuantía, que ha aumentado permanentemente, llega a 83.000.
+
+Es decir que de 7.000 a 83.000 hay una carga de una mayor población sobre los sistemas de salud, por ejemplo, que existen en la zona, o sobre la demanda del agua, o sobre demanda de nutrición, o sobre demanda de servicios de educación.
+
+Ahora, ¿qué sucede dada esta población, dadas estas características, dadas estas vulnerabilidades con El Niño, con la crisis climática y con el agua?
+
+El Niño relativamente no siempre es previsible, no se sabe con certeza cuándo llega ni cuál su magnitud.
+
+El Niño obedece a unas condiciones que tienen que ver con el calor del océano Pacífico y que producen en general en América del Sur y en América del Norte un cambio drástico de condiciones climáticas.
+
+Si se calienta las aguas, si no se calientan y en qué magnitud se calientan, entidades internacionales le van avisando a Colombia sobre las probabilidades.
+
+---
+
+## Segmento D016_S003
+
+- orden_segmento: 3
+- numero_palabras_segmento: 490
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Por ejemplo, en el caso del Niño, sólo hasta el mes de marzo, finales, y principio de junio supimos que iba a haber un cambio de Fenómeno de la Niña, su inverso, que en general se da en términos de abundancia de aguas lluvias, inundaciones, etcétera, las acabé de vivir incluso en la Guajira inundada en el norte para el mes de diciembre, en junio se nos avisa que hay un cambio y que hay una probabilidad de Fenómeno del Niño, que es lo contrario, sequías en la región.
+
+Esa probabilidad va aumentando en el tiempo, dependiendo de las mediciones.
+
+Cuando la probabilidad es mayor de 50, las entidades empiezan a actuar de acuerdo a los protocolos. La última medición que se hizo sobre El Niño por entidades vigilantes de orden internacional es que pasamos de moderado a grave con una probabilidad del 56 %.
+
+Es decir, vamos a tener con una probabilidad del 56% un Fenómeno del Niño grave
+
+¿Era previsible que iba a ser grave en el mes de marzo?
+
+No. Era previsible que iba a haber un Fenómeno del Niño, no que iba a ser grave.
+
+¿Será grave con certeza o un 56 % de probabilidad en la última medición?
+
+Con un nivel de esos llegando casi a 70, podemos pensar que efectivamente vamos a tener un Fenómeno del Niño grave.
+
+Ahora, el problema es qué tan grave.
+
+Y aquí las mediciones del Fenómeno del Niño ya no nos sirven, sino que este está cruzado con un fenómeno independiente que no tiene la misma previsibilidad. Es decir, ninguna organización internacional nos va a decir si la región de la Guajira, el Caribe o todo el territorio colombiano va a tener una variabilidad climática que pueda volver aún más profundo el Fenómeno del Niño, respecto a la población y el agua en la región.
+
+Esto es lo que se llama la crisis climática. La crisis climática es imprevisible en el mediano plazo
+
+¿La crisis climática a qué se debe? A gases que salen por el carbón, por el uso del petróleo, por el uso del gas que se han acumulado durante la Revolución Industrial hasta la fecha, cada vez en una forma mayor, casi que exponencial, y que cambia el ciclo del agua.
+
+Al derretirse grandes masas de hielo, al evaporarse en la atmósfera del océano, etcétera, se produce un cambio del ciclo del agua que implica un cambio de los ciclos vitales.
+
+La crisis climática tiene la potencialidad de generar la sexta extinción de la vida en el mundo, incluida la vida humana.
+
+No es un juego de niños, ni siquiera un fenómeno natural como El Niño o La Niña, es un fenómeno producido por un sistema económico, que para poder ganar más y ser más rentable, tiene que consumir cada vez más la energía de la productividad que hasta el momento es el carbón, el petróleo y el gas. Los hidrocarburos, los combustibles fósiles.
+
+¿Qué tenemos al respecto?
+
+---
+
+## Segmento D016_S004
+
+- orden_segmento: 4
+- numero_palabras_segmento: 493
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+En mediciones recientes, porque no eran previsibles, si proyectamos, es, ahí está. Ahí mi imagen tapa el cuadro en su parte más importante, no sé si se pueda modificar.
+
+Pero el cuadro a la derecha, que va de azul a rojo, que tiene como fuentes la Unión Europea, etcétera, mide este verano, comparado con los veranos desde el año 1940.
+
+Lamentablemente se tapa lo que yo quería mostrar.
+
+Entonces, en la parte azul ustedes ven 1940 corriendo en el tiempo, hasta la última medición hecha en el 2023.
+
+Esa medición del 2023 –no sé si se pueda bajar ahí– ya se ve. La última barra, en rojo, es la medición para este verano en el hemisferio norte. Verano que aún está transcurriendo en momento, aún no hemos llegado a la parte más cálida del verano europeo, norteamericano y asiático.
+
+Pero esa última barra, indica que no tiene ninguna correlación con todo el período que se ha medido en ese cuadro, es excepcionalmente alta. Tan alta que nunca la humanidad había sentido un verano así en los últimos cien mil años, desde que se posee mediciones.
+
+Es por eso que, las organizaciones mundiales dedicadas a este estudio predicen que este año vamos a tener un nivel de calentamiento de toda la superficie terrestre promedio, que era lo que se trataba de evitar con 28 conferencias de partes en las Naciones Unidas, integradas por todos los presidentes del mundo, trazando medidas que se aplicaron o no, pero que llevan a un enorme fracaso en este año.
+
+Este año es altamente probable que la superficie terrestre promedio tenga una temperatura superior a un grado y medio, por encima del promedio de la Revolución Industrial, medida que los científicos, miles de científicos reunidos en el panel de expertos dijeron: no debemos sobrepasar, porque es la antesala del punto de no retorno.
+
+El punto de no retorno significa que, hagamos lo que hagamos, ya no podremos detener las consecuencias –se volverán irreversibles– de la crisis climática en el mundo, con su potencial de extensión de la vida en el planeta tierra.
+
+Si vamos este fenómeno, la crisis climática, lo tratamos de aplicar al territorio colombiano, medido ya no hace un año, no podemos, no se puede saber, medido hace un mes, precisamente cuando empezaban las mediciones en el norte del planeta a ser excepcionalmente altas, pues esta es la medición para Colombia hecha por los mismos organismos y traída por el Ideam a Colombia, que es nuestra organización oficial para estos temas.
+
+Está la temperatura superficial máxima por estimación satelital. Es el cuadro de la izquierda. Va de lo más claro, hasta lo más oscuro; lo más oscuro son niveles de crecimiento de la temperatura, que son mayores –el más oscuro– del 40 % del promedio.
+
+Si me presentan el mapa, por favor. Se cayó.
+
+Bueno, como habrían visto en el momento pasado, el punto de mayor calor en el territorio colombiano es precisamente el extremo norte de Colombia.
+
+---
+
+## Segmento D016_S005
+
+- orden_segmento: 5
+- numero_palabras_segmento: 494
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+El resto, por ahora, en las mediciones recientes –por ahora–, no significa que vaya, no vaya a cambiar en los semanas y meses por venir, por lo menos hasta el mes de febrero, que es donde se considera dura el Fenómeno del niño –no la crisis climática que se sigue agudizando– entonces, lo que tenemos como medición es que el extremo norte de Colombia, integrado por el Magdalena, el Cesar y la Guajira y un poco el territorio vecino venezolano, van a tener, o tuvieron ya, la más alta temperatura –esa la vivió nuestro Gobierno¸ estuvimos ahí para la misma época en una semana completa gobernando desde allí y sufrimos las consecuencias, incluso el Presidente de la República–, es un porcentaje 40 % superior al promedio.
+
+En esa época tuvimos temperaturas allí que llegaron a 40 grados, 44 grados centígrados. Comparado con el resto del mundo, la más alta se dio en el Golfo Pérsico a 62 grados centígrados, hubo temperaturas en el Sahara, en el sur de España, en China, en el norte de China, de 50, 55 grados centígrados, esas temperaturas ya no le permiten al ser humano vivir en la intemperie.
+
+Sólo son mitigables en una especie de burbujas tecnológicas que los árabes han logrado construir en algunas de sus ciudades como Dubái, etcétera, pero si no existieran, el ser humano ya moriría allí en una duración de una hora o de hora y media.
+
+En La Guajira las tuvimos de 42 a 44.
+
+Problema, el verano no ha terminado, apenas comienza.
+
+El mes de agosto es el mes más duro del verano en el norte hará guiar las temperaturas de la Guajira, que está en el hemisferio norte, en el área tropical, y el fenómeno agudizado con El Niño, que ya de por sí genera sequías, pues nos provoca esta emergencia.
+
+Esta emergencia –y terminaría ahí– que puede durar hasta febrero o marzo, no podemos decir todavía.
+
+Para esos meses podría extenderse ya al conjunto de toda Colombia. Si las condiciones se juntan para el mes de febrero y marzo, no retroceden, habría problemas, por tanto, en nuestros embalses, en la capacidad de producción agraria, en la capacidad de generación eléctrica, pero en el norte siempre sería más radical, más profundo el problema.
+
+Como ustedes saben, la cantidad de agua en La Guajira –en nuestra opinión– es suficiente.
+
+Lo que ha sucedido es que la administración del agua en la Guajira, a través del tiempo, ha pasado por relaciones de poder que han dejado a la población indígena, la más marginada, por fuera de un posible servicio.
+
+Lo mismo se repite en educación, lo mismo se repite en nutrición, lo mismo se repite en salud.
+
+Y es ahí a donde hemos dirigido los decretos que ustedes tienen en su poder.
+
+Hemos decretado la Emergencia por estas razones científicas, que ya las entidades expertas profundizarán más, pero los decretos de emergencia tratan de mitigar esas difíciles relaciones de poder que existen allí.
+
+---
+
+## Segmento D016_S006
+
+- orden_segmento: 6
+- numero_palabras_segmento: 431
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Por ejemplo, el agua de La Guajira se concentra fundamentalmente en el sur y tiene como fuentes la Sierra Nevada de Santa Marta.
+
+Allí se ha hecho un embalse, con una medición, con unos flujos. Si ustedes cogen el flujo del embalse del agua que llega, y hacen el cálculo matemático de cuánta población en total tiene La Guajira, consumos medios por ser humano, etcétera, encontrarían que el agua alcanza, matemáticamente hablando.
+
+Claro, habría que llevarla del sur al norte, pero eso la ingeniería lo descubrió hace mucho tiempo, desde época de los romanos y antes.
+
+¿Por qué no sucede? Porque el uso del agua de La Guajira en el sur tiene otra prioridad, que básicamente es agricultura, energía y carbón.
+
+Que si se junta a un hecho histórico, que no he visto muy mencionado en la prensa, la ruptura de un equilibrio que era la sal de Manaure y la capacidad nutricional que generaban los excedentes de la sal, en épocas de la Concesión Salinas, propiedad del Estado, en esa región, que es donde ahora ha muerto más niños en promedio, la ruptura, la privatización de Concesión Salinas, produjo un quiebre del equilibrio nutricional y de aguas.
+
+Concesión Salinas tenía una empresa que se llamaba Proaguas, que se cerró y que dotaba de agua potable la región toda de Manaure, iba un poco más allá hacia Maicao.
+
+Ese quiebre, junto con otro hecho en el sur, el carbón, el Cerrejón, y el cambio de fluidos que produjo el agua que había allí superficial, hoy ustedes la ven en el fondo de los huecos, y tiene un uso para la actividad del carbón, pero es una cantidad permanente alrededor de las décadas, ese cambio de fluidos, junto a lo que sucedió en Maicao, produjo un quiebre del equilibrio de aguas.
+
+Por eso hay un incremento, desde esa época hacia adelante, del uso del agua, que tiene unos mecanismos de poder.
+
+Lo que nosotros estamos haciendo aquí en los decretos es cambiar la prioridad.
+
+La prioridad es antes que nada el ser humano, el agua potable.
+
+Y esto cambia, en términos matemáticos, el uso del embalse. Por eso desplazamos quién cuida el embalse y creamos una institución del orden nacional, que es el Instituto de Aguas de La Guajira, que tendrá el manejo integral del agua, precisamente para garantizar esa prioridad.
+
+Si ustedes ven el tema salud, y como se me acaba el tiempo voy a ser más rápido, pues sí hay una irrigación mayor que llega a EPS, pues como es la Ley 100, y no hay atención primaria en salud.
+
+---
+
+## Segmento D016_S007
+
+- orden_segmento: 7
+- numero_palabras_segmento: 349
+- observaciones_segmentacion: Segmento final
+
+### Texto
+
+Lo que tenemos es un sistema hospitalario vetusto, con un gran número. Aquí está el Ministro de Salud lo explicará mejor– un gran número de entidades de salud cerradas, y otras a medio funcionar, que ante la emergencia de desnutrición, pues no son capaces de resolverla en los puntos más delicados del tema, cuando llegan los niños, cuando se necesita la atención. Incluso hay problemas culturales para que los niños lleguen a un hospital, que sería el más fácil de resolver, si cerca a las rancherías dispersas hubiera un sistema de salud también disperso, no concentrado, como es el que tenemos en Colombia.
+
+A eso es lo que llamamos atención primaria en salud. Es que en lugar de esperar que el paciente llegue al hospital, que en el caso wayú no llega, por razones culturales, y difícilmente llega en el resto del país–, sea el sistema de salud el que llegue a donde está la población. Eso implica más costos. Por eso no es rentable, por eso un mecanismo de mercado no resuelve esa situación.
+
+Pero la construcción de ese modelo de atención primaria puede garantizarnos que el sistema de salud llegue hasta la ranchería en uno de sus decretos.
+
+Ustedes podrán observar ese cambio de sistema para el caso concreto de La Guajira.
+
+Hay otros elementos que tienen ya que ver con la sostenibilidad en el tiempo. Por ejemplo, el que La Guajira pueda tener energía limpia, podría ser el departamento con economía descarbonizada, el primero del país por el sol, por los vientos.
+
+Por ejemplo, el tema del turismo, que podría darle un sustento económico permanente, por ejemplo, volver a construir el sistema de equilibrios de la sal, y hemos capitalizado la empresa para que podamos revivir Proaguas y el equilibrio que existía en esa zona anteriormente.
+
+Por ejemplo, la detención de la explotación carbonífera, para que no agreda los últimos ríos que quedan, las últimas quebradas, en realidad, que quedan, para que no se nos agrave el equilibrio entre agua y población y cultura en el departamento de La Guajira.
+
+Gracias por haberme escuchado. Muy amables.
+
+---

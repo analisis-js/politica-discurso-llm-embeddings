@@ -1,0 +1,246 @@
+# Documento segmentado
+
+## Identificación del documento
+
+- id_documento: D036
+- nombre_archivo: DOC036_visita_colonia.txt
+- numero_palabras_documento: 4127
+- numero_segmentos: 9
+
+---
+
+## Segmento D036_S001
+
+- orden_segmento: 1
+- numero_palabras_segmento: 473
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+https://www.presidencia.gov.co/prensa/Paginas/Palabras-del-presidente-Gustavo-Petro-Urrego-en-su-visita-a-la-Colonia-Penal-250411.aspx; https://youtu.be/4NP_sgQDHuQ
+
+Palabras del presidente Gustavo Petro Urrego en su visita a la Colonia Penal de Oriente en Acacías (Meta), por la humanización carcelaria
+
+Bogotá, 11 de abril de 2025
+
+Yo tenía ganas de conocer este lugar, se escuchaba mucho, desde hace mucho tiempo he escuchado de este lugar, a veces lo miraba con temor, otras veces me preguntaba ¿y por qué en un amplio campo, uno privado de la libertad no se escapa? Y es más fácil, esa no es la tarea para esta noche, esa es la tarea de la vida.
+
+Después fui entendiendo que hay cárceles y cárceles y cárceles, que una cárcel va envolviendo a otra y así, sucesivamente, y la vida de la humanidad, no solo de la persona consiste en ir rompiendo las cárceles del alma, decía un libro que me leí precisamente en una cárcel, porque yo también estuve preso.
+
+Aunque yo no tuve, siempre decían ahí en los patios usted tiene una condena de embarazo, dura lo que es un embarazo, realmente, me duró dos embarazos, pero comparado con otras, y me ponía a hablar patinando, le decían los patios, porque a mí no me daban trabajo, me tocó hacer una huelga de hambre como hay cuatro días para que me dieran un trabajo, que fue al final hacer tallas de madera, y aprendí, y a tal punto me iba gustando hacer caballitos alados de madera de cedro, que era como la más fácil, me corté todas las manos, eso sí.
+
+Y cuando me dieron la libertad, como aquí dijeron, primero me dio susto, y después algo de rabia porque quería terminar el caballo y no lo había terminado, de alguna manera sabía que afuera ya no iba a tener el tiempo de terminarlo y no lo terminé, hice dos, uno se lo regalé a mi hija Antonella y otro a mi primer hijo Nicolás, y ahora con tantos hijos que he tenido, pues todos me reclaman un caballo y me va a tocar venirme aquí a trabajar unos días, a ver si los puedo hacer.
+
+Pero en medio de las circunstancias, me llevaron como a cinco centros diferentes, me volví algo así como un experto, de turista en las cárceles, fui conociendo mucho al ser humano.
+
+Yo era un joven, tenía 23, 24 años, nunca había salido de Zipaquirá (Cundinamarca), siempre había estado entre libros y entre obreros, y entre gente pobre porque esa fue la causa de mi presidio, pero nunca había tenido la oportunidad de salir de allí, era como una especie de burbuja, un tanto intelectual, un tanto de izquierda, de acción política, me volví líder popular, pero nunca había tenido la oportunidad de salir de allí.
+
+---
+
+## Segmento D036_S002
+
+- orden_segmento: 2
+- numero_palabras_segmento: 482
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Fue en la cárcel que me hice hombre, como dice el vallenato, y en toda la guajira me hice libre, en las cárceles me hice libre, leyendo, hablando, enseñando a leer, a escribir, y sobre todo conociendo cada vida en particular, cuando la persona que hablaba conmigo, pues con franqueza me la explicaba, los dichos, las maneras de entender, y sobre todo la esperanza.
+
+Casi todos, no encontré uno que estuviera absurdamente desilusionado, ninguno se suicidó delante de mí, vi a varios que mataron, incluso a asesinatos del Estado, pero encontré en cada ser humano una especie de amarre hacia la esperanza, es que yo voy a salir y voy a hacer tal y tal cosa, y soñaba y soñaba, y esa esperanza es finalmente la que ha guiado la vida humana, la especie humana hacia adelante.
+
+La esperanza es lo que nos hace dar otro paso, y otro paso, y otro paso en la montaña, la esperanza es lo que nos hace levantarnos cada día, así llueva, la esperanza es lo que nos hace tener como una especie de energía interna que dice esto aquí no se ha acabado y lo bueno está por venir, y así la esperanza nos guía, y cuando uno empieza a mirar hacia atrás, ya pasados los años, uno encuentra que ha vivido, y que todas estas experiencias no son más sino acicates para que la vida sea más intensa, eso desde el punto de vista personal.
+
+En la cárcel me hice hombre y hay quienes se arrepienten de que me haya hecho hombre, porque no me aguantan mucho en la presidencia, porque al final lo que se trataba era transformar las cosas, y la cárcel es una de las cosas que hay que transformar en Colombia.
+
+Yo creo que oyendo en los debates parlamentarios, 20 años duré ahí, en todo el tiempo que duré en el Congreso de la República, había como una competencia por la fase de la historia que me tocó estar ahí, de ver quién proponía la pena más dura, creían, nunca lo vi en la práctica, creían las personas que así hacían, a eso le llaman el ‘punitivismo jurídico’, creían que iban a ganar más votos, entre más alta la pena era porque entonces se estaba más dispuesto a luchar contra el crimen, y se estaba más lejano del crimen, y entonces la mayoría de la sociedad cuidando la vida de sus hijos, la estabilidad de sus hijos, de sus hijas, su bienestar, iban a premiar con el voto a la persona que al poner más años en determinados tipos de delitos, estarían asegurando el bienestar de sus hijos.
+
+Yo no sé si eso ha sido así, en realidad creo que los votos no nacen de eso, y lo que sí ha sucedido es que tenemos un estrafalario sistema de penas, y un sistema carcelario que no es más sino castigo.
+
+---
+
+## Segmento D036_S003
+
+- orden_segmento: 3
+- numero_palabras_segmento: 493
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Hay un filósofo francés que escribió, precisamente, sobre esto desde la filosofía, la tendencia a construir cárceles en donde estudiamos, en donde nos curan, en donde recreamos nuestra vida laboral, hasta en el matrimonio construimos cárceles, hacemos de nuestro hogar una cárcel, le pegamos al hijo porque no se comporta como uno, o a la hija porque oye una música que uno no oyó nunca y obvio, o el hombre termina pegándole a la mujer porque la mujer llega con sueldo a la casa y ya no pide permiso, y nos parece que eso es una sociedad terriblemente desordenada, nos parece que la libertad es un pecado.
+
+Sociedades encarceladas, ellas mismas, ausentes de libertad, tratan de plasmar en el castigo lo que ya no tienen libertad, y el castigo es lo que hemos visto, cadenas que se vuelven perpetuas, muerte en la cárcel.
+
+Cuando a mí me llevaron a La Modelo y yo no conocía ni Bogotá, la primera sensación que me dio en aquella época, 1985, fue un poco de jovencitos llenando el patio, eran como 1.800, patio grande de La Modelo, 1.800 jóvenes, todos arrinconados contra la pared porque decían que uno tenía que poner la espalda en la pared o llevaba el bulto, pero agachados como micos, amarillos en su piel, casi flacos todos, completamente temblorosos, y era el producto de una sustancia que se irradiaba en la cárcel, que entraba a la cárcel y era un gran negocio, llamado bazuco, que creo que todavía existe.
+
+Bazuco es un desecho de la producción de cocaína antes de ser cocaína, es decir, esa droga no se usa en buena parte del mundo, solo en donde se produce la cocaína, porque no es post cocaína, si no es antes de la producción de la cocaína, y tiene unos efectos en el ser humano de ansiedad y desespero y de adicción tan altos que prácticamente el ser humano que cae allí se consume y muere o se mata con el otro.
+
+Y lo que yo iba viendo en esa cárcel era que se condenaba a la juventud porque tenía una papeleta en el bolsillo, ese era el deporte en la ciudad, a presar jóvenes con esas papeletas, por un decreto que ya no me acuerdo el número, se llevaba a la cárcel y de allí ya no volvía a salir.
+
+Lo único que servía esa justicia era para que el señor o la señora en el carro no viera al jovencito desesperado en la calle tratando de robarle el espejo o el reloj para ir a comprar más bazuco. Morían, simplemente la cárcel no era más sino un moridero de juventudes populares y pobres. Y eso fue lo que yo vi.
+
+Entonces ahora se trata de ver qué hacemos, porque tanto han subido las penas que ya no se pueden subir más, 60 años hay unas, y para dónde más, y el delito no ha cesado. Simplemente porque subieron las penas.
+
+---
+
+## Segmento D036_S004
+
+- orden_segmento: 4
+- numero_palabras_segmento: 452
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Se nos ha olvidado analizar de dónde viene el delito, ¿por qué? Aquí le dicen error, yo le digo delito. Error es de la persona, delito es de la sociedad, es una manera diferente de analizar.
+
+Yo me equivoqué o la sociedad se equivocó. ¿Por qué nos volvimos sociedad del narcotráfico y no lo éramos? ¿Quién nos llevó allá? ¿Nosotros lo votamos en alguna elección? ¿Decidimos? ¿Hace 50 años? ¿Cuánta gente se ha muerto asesinada en los vaivenes del narcotráfico? Según las estadísticas, 400 mil personas colombianas.
+
+¿Y quién decidió ese destino? ¿De Colombia no fue? ¿Llegó? Abruptamente, nos conquistó el territorio, muchos, y hasta el alma, algunos. No lo impusieron. Alguien determinó que esa sustancia era ilegal fuera de Colombia y alguien determinó que otra sustancia, a veces peor, era legal.
+
+Como se lo dije a la gringa que me malinterpretó. El whisky mata más que la cocaína. Pero el whisky lo hacen ellos. La cocaína se hace aquí. Luego, lo legal es lo de ellos. Y las fortunas que se hacen con el whisky.
+
+Y la cocaína es ilegal porque se hace aquí. ¿Mata más la cocaína que el whisky? Pues los invito, si hay fibra óptica que llegue a esta cárcel, del que le he pedido a la directora que tramite el proyecto de que llegue la fibra óptica a la cárcel, porque sin fibra óptica no hay producción en el siglo XXI. La ciencia dice que lo que mata más es el whisky. Y entonces, ¿en qué mundo de justicia estamos? Si los que se emborrachan con el whisky y ganan con el whisky tienen el poder del mundo y el poder de la destrucción de la bomba atómica.
+
+Por tanto, no son simples errores, somos productos de una historia, de una sociedad. Los errores son sociales, a veces escogemos como sociedad el camino que no es, y a veces las victorias también son sociales.
+
+La verdad, por encima del castigo
+
+Ahora, estamos viviendo el hoy. Este Gobierno, que le queda ya poco, dijo en su programa que no nos interesa castigar. Nos interesa la verdad, que es diferente. Una sociedad se repone tanto en sus víctimas como en su propia historia, si sabe la verdad de las cosas.
+
+Un proceso judicial debería contener, así sea el robo de un celular, de tantos que hay robos en Colombia de celulares, la verdad y hasta la posibilidad para el ladrón de devolver el celular y no entrar a la cárcel, habría más celulares recuperados y habría menos víctimas rabiosas porque perdieron su celular que quizás le regaló el novio, o la mamá, o le costó mucho trabajo comprarlo y da rabia perderlo porque se fue medio mes de sueldo.
+
+---
+
+## Segmento D036_S005
+
+- orden_segmento: 5
+- numero_palabras_segmento: 490
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Pero no solamente en el delito de baja intensidad, sino en los grandes delitos de Colombia. Y un Estado no mató a 6.402 jóvenes. ¿Dónde está la verdad? Y no desplazaron millones y millones de campesinos. ¿Están aquí presos los que desplazaron a los campesinos? ¿O en alguna cárcel de este país? ¿O quién mató a 5.000 militantes de la Unión Patriótica solo por ser de izquierda? Aquí en este territorio hubo muchos, incluso un senador, y los mataron.
+
+Y los otros podrían decir de otros y de otros delitos y cuántos secuestros, etc. ¿Dónde está la verdad? Nos ha interesado más castigar que encontrar la verdad. Y la verdad es la que redime no solamente al victimario, sino a la víctima y a la sociedad entera. Por eso los procesos judiciales deben llevarse a la verdad, antes que nada, antes que el castigo.
+
+Castigar es fácil, pero de ahí la sociedad no saca nada, sino seres que salen a vengarse. Decía Gabriel García Márquez que nos matamos por la venganza. Si yo me vengo de ti, alguien, tu hijo, se venga de mí, alguien, mi hijo, se venga de él. Y pasan las generaciones, y pasan los siglos, y no fuimos más que la sociedad de la venganza.
+
+Reforma carcelaria en busca de la verdad
+
+Pero si somos la sociedad de la verdad, ¿qué pasa? Que de pronto nos convertimos en una sociedad grande. Bueno, la reforma carcelaria debe ir hacia allá. No debe ir hacia la cárcel, hacia el castigo.
+
+La cárcel no resuelve todo. Los jueces, los fiscales, lo que llamamos el sistema judicial, que es más amplio que la cárcel; la cárcel es una parte del sistema, deberían encontrar y priorizar en sus búsquedas investigativas la verdad.
+
+Hoy hablaba con la ministra, ahí, no lo pongo en boca de la ministra, lo pongo en boca mía, que recibo los rayos y los pararrayos y toda esa vaina. Pero cojan dos condenas, recientes, esas que se hacen públicas, de casos famosos. El señor Sneyder (Sneyder Augusto Pinilla Álvarez, ex subdirector para el Manejo de Desastres), ¿cómo se llama? Pinilla.
+
+Un ladrón, ladrón, del erario público, un rufián que estuvo trabajando en una de las dependencias en mi Gbierno, la Unidad Nacional para la Gestión de Riesgo de Desastres (UNGRD), robándose el billete, entró a robárselo.
+
+Un billete que estaba destinado a que, en todas estas cosas del cambio climático, pues, tengamos dinero para atender las emergencias, que se inundó allá el barrio, que se inundó, se cayó la montaña, el caserío en la montaña, que la quebrada inundó, etcétera. Se cayó el puente y entonces toca ponerlo, porque la gente quedó incomunicada, no entra la medicina, etcétera. El tipo se robó esa plata, con otros.
+
+¿Cuánto le pusieron de condena? Entonces, si uno busca ahí en internet, profesor Google, como decía Fajardo, 4,2 años de prisión, total. Ustedes saben que eso se vuelve menos.
+
+---
+
+## Segmento D036_S006
+
+- orden_segmento: 6
+- numero_palabras_segmento: 495
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Ustedes cojan otro caso famoso para ver la justicia en Colombia cómo funciona. La señora Epa (Daneidy Barreras, Epa Colombia). No sé cómo se llama Epa. Tiene que ser una cosa muy especial para recordar esos nombres, pero a Daneidy, Epa Colombia, ¿cuánto le pusieron? 5 años de prisión.
+
+¿Y qué fue lo que hizo Epa? ¿Nos robó? No, bueno, no sé si la queratina esa sea una forma ahí rara, pero no, no me meto en esos debates. Puedo salir mal. La señora lo que hizo fue romper un vidrio porque pensó que, en el momento de las manifestaciones juveniles, no estudiantiles, era un acto de protesta. Y se equivocó ahí, y después, eso sí, escogiendo el abogado. Escogiendo el abogado, sí metió las de caminar.
+
+Pero la pregunta que uno tiene que hacerse es: ¿por qué un sistema de justicia, si es de justicia, condena más a la mujer que al hombre? Y condena más el gesto de protesta que el robo del erario, el robo a los pobres, que robarse el presupuesto. Entonces, dejo ahí la reflexión, porque entonces tenemos un sistema de justicia que es injusto, que no se traza hacia la verdad, sino que se traza hacia el castigo.
+
+A Epa la condenan más que a Sneyder Pinilla (Sneyder Augusto Pinilla Álvarez, ex subdirector para el Manejo de Desastres), porque es mujer, uno, porque es mamá, dos, porque es levantada, tres, como dicen, es levantada, tres, cuatro, porque protestó. El otro es un rufián terrible, se roba los dineros del erario público, es un corrupto, un hp, diría yo, y lo condenan menos.
+
+Y va a salir primero de la cárcel, él que la señora Epa. Y me dice la ministra (de Justicia, Ángela María Buitrago), que mientras él se puede ir a pasear por el mundo con los dineros que no entregó, a disfrutar del mundo, ella nunca podrá salir del país porque al ser acusada y condenada por terrorismo queda marcada en todas las aduanas de todos los aeropuertos del mundo y no la van a dejar entrar a ninguno. Yo pienso que el terrorista era él, no ella. Pero así ha sido en el día de hoy.
+
+Ahora, nos interesa castigar o nos interesa resolver los problemas de la sociedad colombiana. Y si es lo segundo, el problema no están las penas, el problema está en que estas instancias de resocialización que llaman sean de verdad de resocialización, esa palabra a mí no me gusta porque toda persona aquí ya es de la sociedad colombiana.
+
+Lo que hay aquí, nos guste o no nos guste, es el reflejo de la sociedad colombiana, no es algo que está fuera de la sociedad. Y venir aquí es mirar la sociedad de frente, un poco condensada, de todas las regiones de Colombia en un solo momento. Si hiciera un recorrido de conversaciones de cada uno de ustedes, tendríamos la historia de Colombia actual y contemporánea.
+
+Centros de educación y producción
+
+---
+
+## Segmento D036_S007
+
+- orden_segmento: 7
+- numero_palabras_segmento: 462
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Lo que se trata de hacer aquí es que esto se convierta no en un centro de castigo, sino en un centro de educación, en un centro de producción y que siga siendo después de que se acaba la llamada condena. Es lo que nos interesa, es humanizar la cárcel. Yo personalmente creo que la cárcel no debe existir, pero son ideas mías que me queda difícil concretar.
+
+Cárcel es cuando el ser humano solo aprende en la libertad, solo realmente vuela en la libertad, solo crea en la libertad, solo es ser humano si es libre. Todo impedimento a esa libertad no nos hace bien ni al conjunto de la humanidad ni al ser humano que le quitan su libertad. Pero eso es una idea que algún día se volverá real.
+
+Por ahora no, pero mientras tanto, ¿por qué no hacer de estos centros, centros de libertad? Yo me sentía libre haciendo el caballito. Soñaba ahí con las alas y el poder de los músculos del caballo que yo no tenía. Pero todos podemos hacernos libres en el trabajo mismo, cuando nos gusta lo que hacemos, no cuando no nos gusta lo que hacemos.
+
+Y podemos volvernos expertos y científicos y científicas. Y en ese mismo camino de convertir la cárcel en una universidad, en un centro de producción, la salida a la calle, que es tenaz, y yo lo sentí, porque parece que uno entrara a un huracán de colores y de movimiento, a lo cual uno ya no estaba acostumbrado. Y pareciera que eso lo fuera a devorar y que uno no se pudiera mover en ese huracán de velocidades de acontecimientos rápidos en un día.
+
+Pues también afuera tiene que haber un espacio para que él y la que estuvo aquí adentro. Y de eso se trata este decreto que hemos firmado. Se llama de la segunda oportunidad.
+
+Decreto sobre Casas de Acogimiento
+
+Yo creo que uno debe tener segunda, tercera, cuarta y quinta todos los días deben ser oportunidades. Ese decreto que comenzará débilmente como todo, pero que se puede ir fortaleciendo en la medida en que se practique la tarea de que una persona que pasa por un centro de reclusión se convierta en un actor y líder de su propia sociedad después, no en un rechazado, no en un marginado o marginada o discriminado o discriminada porque esa actividad de la sociedad solo va a construir más crimen, más inseguridad, más muerte.
+
+Este decreto trata y aquí tiene que hacerse la experiencia de que la persona, hombre o mujer que pase por aquí al salir de aquí se convierta en un constructor o constructora de sociedad, no atrás, no como peón, sino de frente, como líder, como dirigente, como ser humano cabal, a carta cabal.
+
+---
+
+## Segmento D036_S008
+
+- orden_segmento: 8
+- numero_palabras_segmento: 470
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Esta cárcel tenía 300 mil hectáreas. En 1920 o algo así, cuando se fundó el centro. Hoy quedan 4 mil. ¿Quién se quedó con lo demás? ¿Acaso alguna vez vendieron la tierra? ¿O se la robaron? Como le pasó al Hospital San Juan de Dios. Esos que se robaron la tierra no pasaron por la cárcel.
+
+Recuperación de tierras para la producción
+
+Le he pedido a Felipe (director de la Agencia Nacional de Tierras, Juan Felipe Harman Ortiz), que investigue toda la propiedad que era originaria de la colonia penal de Acacías.
+
+Seguramente habrá muchos pobres ya ahí y no valdrá la pena sacarlos porque causamos otra violencia, pero quizás haya también gente que no sea pobre y que simplemente se apropió de un bien público y que se lo quitó a la gente que iba a ser recluida para que no pudiera sembrar ella, sino él, el que se quedó con la tierra.
+
+300 mil hectáreas hubieran podido ser una de las grandes reservas campesinas del país, gran productora de alimentos, ayudarnos a alimentar a la sociedad colombiana en sus sectores más pobres, en sus bebés. ¿A dónde fue a parar esa tierra?
+
+Entonces me parece que una de las primeras tareas que hay que hacer si queremos que este decreto de verdad no sea palabra, sino realidad, es que recuperemos parte de esa tierra y que hagamos el sueño de los abuelos que vieron aquí la posibilidad de que una persona que cayera bajo reclusión por alguna razón X pudiera redimir su espíritu, sus heridas y pudiera reconciliarse con la vida a partir de trabajar el campo, de abrir el surco y de producir alimentos bajo el sol.
+
+Eso se hace aquí, pero en 160 hectáreas y teníamos 300 mil hectáreas, así que recuperar eso que es de justicia para los actuales o para la gente futura que pase por aquí, ojalá todo campesino que capturaran porque ha sembrado hoja de coca.
+
+¿Quién dijo que eso es delito? Un gringo, ni siquiera un colombiano. Pudiera pasar por aquí si es que no podemos liberarlo y pudiera sembrar y, entonces, su famosa condena se convirtiera simplemente en algo que él ya sabe hacer bien, que es sembrar la tierra y producir alimentos.
+
+En 300 mil hectáreas podríamos tener 30 mil, más del número que existe en este momento. Claro, no las tenemos, pero podemos tenerlas. Si Harman se concentra, ¿cierto?, en el departamento del Meta en, por ejemplo, un objetivo como este, no en un objetivo difuso.
+
+La Reforma Agraria tiene que ser en el Caribe, en el Magdalena Medio. Hemos dicho muchas veces, porque los terratenientes se quedaron con la tierra y en la altillanura, lejos de aquí, pues no es fértil. Es otra cosa la que tenemos que hacer ahí, ojalá un ferrocarril que llegue hasta allá.
+
+---
+
+## Segmento D036_S009
+
+- orden_segmento: 9
+- numero_palabras_segmento: 310
+- observaciones_segmentacion: Segmento final
+
+### Texto
+
+Incluso, podríamos poner aquí la idea de ayudar a construir el ferrocarril de la altillanura. Exactamente, como primera fase, porque de Puerto Gaitán se llega, ahí está el punto, se me olvidó el nombre, que es navegable el río Meta y se llega al Orinoco, y el Orinoco se llega al mar. No es un plan de escape, es un plan de producción nacional de alimentos.
+
+Ojo, bueno, si estuviera yo de pronto, un plan de escape de la pobreza. La directora (directora Colonia Penal de Oriente, Karen Lorena Agudelo Lugo, me mira si ya lo sufre, es un plan de escape de la pobreza. ¿Cuántas hectáreas de alimentos no podemos producir en todas estas tierras? Si las podemos exportar, si hubiese un ferrocarril hasta Puerto Gaitán y de allí por el río Meta hasta el Orinoco, y el Orinoco hasta el mar. El escape Papillón, pero al revés.
+
+Entonces, Felipe, es una instrucción que hoy en estos meses yo creo que se puede hacer, es recuperar la tierra posible y comprarla, no posible, para que esta colonia se convierta en el sitio donde el campesinado hoy preso en el país, por razones judiciales, pueda aquí estar y transitar a lo que sabe hacer, producir la tierra y los alimentos.
+
+Y esa puede ser una de las tareas, ministra (de Justicia, Ángela María Buitrago), más importantes del decreto. No lo único, porque aquí ya he visto mujeres que quisieran otras cosas y hombres que obviamente quieren otras cosas para su vida, pero se trata de que aquí haya un impulso para hacer lo que uno quiere de la vida, uno, no otra persona.
+
+El principio de la libertad es que uno haga de su vida lo que uno quiere y no que otra persona se lo imponga.
+
+Gracias, muy amables, aquí, a los que se achicharraron con el sol, gracias.
+
+---

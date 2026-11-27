@@ -1,0 +1,257 @@
+# Documento segmentado
+
+## Identificación del documento
+
+- id_documento: D008
+- nombre_archivo: DOC008_zarpe_antartida.txt
+- numero_palabras_documento: 3468
+- numero_segmentos: 8
+
+---
+
+## Segmento D008_S001
+
+- orden_segmento: 1
+- numero_palabras_segmento: 472
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+https://www.presidencia.gov.co/prensa/Paginas/El-camino-que-tenemos-para-volver-a-ser-una-Gran-Colombia-es-el-camino-del-saber-de-la-cultura-y-del-arte-231214.aspx
+
+Palabras del presidente Gustavo Petro durante la ceremonia de zarpe a la Antártida del buque científico ARC ‘Simón Bolívar’
+
+El camino que tenemos es el de ser solidarios entre nosotros y querernos como colombianos: presidente Gustavo Petro
+
+Buenaventura, Valle del Cauca, 14 de diciembre de 2023
+
+Parte un buque ​que ya conozco, es construido por completo en Cartagena, en los astilleros de Cartagena, en la empresa que la Armada ha podido desarrollar para estos efectos y que representa uno de los hechos más importantes de un proceso de industrialización al que he convocado a la Fuerza Pública de Colombia. Como en la historia de muchos países.
+
+​El Ejército, la Armada, la Fuerza Aérea no solamente son fuerzas para el combate y para la defensa, sino fuerzas para el conocimiento, fuerzas para la construcción económica de un país.
+
+Japón no hubiera podido tener su industria sin sus fuerzas militares ni Rusia ni Estados Unidos. Y de esta manera Colombia también podría ser un escenario en donde su propia fuerza militar es el eje central de la construcción de un proceso de industrialización.
+
+Construir este buque, que no solamente es el latón que podemos ver, sino que ahí adentro hay cables, hay conocimiento, hay sistemas, hay mecanismos que tuvieron que desarrollar ingenieros, ingenieras, jóvenes, la mayoría, para lograr construir este made in Colombia.
+
+Obviamente, hay tecnologías que aún tenemos que desarrollar nosotros mismos, pero este es un ejemplo de lo que puede hacer la capacidad y el conocimiento colombiano. Este buque va a explorar no solamente el océano, la Antártida, sino la ciencia misma. Es un buque de investigación científica.
+
+Aquí parten decenas de científicos, 16. En estos datos: 16 científicos colombianos, tres científicos extranjeros de Turquía y del Ecuador; cinco periodistas que ya nos comentarán cómo ha sido, cómo será la travesía; dos militares chilenos en apoyo a la misión.
+
+Chile está desarrollando un amplio programa de investigación de la Antártida. Está ahí. Limita con la Antártida, en la tierra más extrema del sur del planeta. Y colombianos indudablemente, 98 personas en total colombianas, que van a participar en esta experiencia de tipo científico. ¿Por qué se necesita? ¿A qué apunta? Porque la Antártida se está derritiendo.
+
+Está construida sobre un piso continental en cantidades enormes de hielo que ante el calentamiento global empiezan a volverse líquidos. Ese hielo, en enormes cantidades en el sur del planeta, en su polo, convertido en agua líquida, va a elevar —lo está haciendo ya— los niveles del mar en todas las costas del planeta. Ya aquí cualquier poblador del Caribe colombiano o del Litoral Pacífico, donde estamos, sabe que el mar cada vez entra más.
+
+---
+
+## Segmento D008_S002
+
+- orden_segmento: 2
+- numero_palabras_segmento: 488
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Aquí se le pone un nombre un poco —como es la costumbre colombiana— que oculta la realidad de una manera, a través de las palabras, de esconder la realidad. Le llamamos erosión costera.
+
+No es erosión costera, no se le puede ganar a la erosión costera. Lo que estamos viendo es simplemente cómo se eleva el nivel del mar en todo el mundo.
+
+Ha acabado o la COP 28 y ha dejado algunos mensajes ambiguos, como toda reunión de todos los países de la Tierra y de todos los intereses económicos del planeta; de los intereses humanos, allí también.
+
+Y algunos científicos allí decían que si la temperatura de la superficie de la Tierra crece 1,5 grados centígrados de manera permanente sobre el promedio que se tenía hace dos siglos y medio, hacia el año 1750, el nivel del mar puede crecer 10 metros. Solo hay que hacer un cálculo, en Tumaco, en Buenaventura, para entender qué significaría ese mar 10 metros más arriba.
+
+Cómo serían el Caribe, la ciudad de Cartagena, la ciudad de Barranquilla, las ciudades costeras del lado Caribe, del lado Pacífico, sus poblaciones, lo que allí tenemos de patrimonio histórico, pero sobre todo de vidas humanas. ¿Qué podría acontecer?
+
+Tumaco, no más, está a 300 kilómetros de una falla geológica. Cualquier temblor allí produce olas. Ya ha acontecido en la historia reciente de Colombia, Tsunamis.
+
+Pero no es lo mismo un tsunami con un mar al nivel del agua, hoy, o el que había hace 25 años, a un nivel del mar que pueda estar un metro más arriba, dos metros más arriba.
+
+El país se está preparando para estas circunstancias. No depende de nuestra voluntad detenerlo, en realidad. En mis discursos a las naciones del mundo, en Naciones Unidas o en la COP, he hablado que no es nuestra gran responsabilidad. Nosotros tenemos una mayúscula, la selva amazónica, porque es la gran esponja de absorción del CO2.
+
+El origen de la crisis climá​​tica
+La crisis climática se debe a un cambio químico de la atmósfera que se produce por la economía de los países más poderosos de la Tierra y por el consumo de la población más rica del planeta. Pero nosotros sufrimos las consecuencias. No somos nosotros, son ellos. Pero las consecuencias se miden en vidas humanas en Colombia.
+
+Tenemos las inundaciones, ya se acerca la sequía en el norte, en todo el país, y son las consecuencias, dinero, billones de pesos, que cada cinco años, cada cuatro años, cada 10 años tienen que invertirse en un esfuerzo mayúsculo para poder recuperar carreteras, vías terciarias, ciudades, barrios, lugares afectados.
+
+Nunca se recuperarán los muertos y cada vez es más costoso y más costoso. No se han hecho las cuentas hacia los próximos 10, 20 años, no mucho tiempo en nuestra propia generación, de cuánto tendrá que gastar el país para simplemente mantener lo que tenemos, afectado por la crisis climática.
+
+---
+
+## Segmento D008_S003
+
+- orden_segmento: 3
+- numero_palabras_segmento: 497
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Pues este busque parte a hacer una exploración sobre este tema, una exploración colombiana. Hay unos científicos y me gustaría que los científicos que se embarcan ahora nos lo pudieran corroborar o no a partir de la discusión científica y el debate, que es el método propio de la ciencia, ¿qué pasa con la selva amazónica si se derrite el casco de hielo de la Antártida?
+
+Porque hay una tesis científica que dice que hay una fuerte vinculación entre el blanco, el azul y el verde, que no es una bandera, es un pedazo del planeta tierra.
+
+El blanco de ese hielo que se derrite, que ha producido, a través de las temperaturas que generan el océano, el azul, unas corrientes que suben hacia la zona tórrida del planeta y que allí, evaporándose en masa, corrientes frías que de pronto encuentran el calor, producen una enorme cantidad de vapor, que es el medio por el cual la selva amazónica ha podido crecer en nuestra Suramérica.
+
+Si eso es así, la suerte de la selva amazónica está ligada a la suerte de la Antártida. Si eso es así, el agua líquida, dulce de toda Colombia, que es producida por los vapores de los árboles de la selva amazónica, al llegar a los páramos y con esa vegetación propia de los páramos, es el agua de los bogotanos, de los tolimenses, es el agua de los huilenses, es el agua de los nariñenses, de los caucanos, es el agua de los antioqueños y de los santandereanos.
+
+Y entonces aquí hay una concatenación entre la vida humana de millones de decenas de millones de personas: la selva amazónica, las corrientes del océano y los hielos de la Antártida.
+
+Si este ciclo, que ha permitido que la vida humana esté en este tan hermoso país se interrumpe, si el ciclo del agua cambia de manera tan drástica en Suramérica, ¿qué pasará entonces con las decenas de millones de personas que se van quedando sin el agua dulce? ¿Tendrán que irse al norte? ¿Tendrán que irse a los Estados Unidos o a Suecia, aquí presente? ¿Querrán recibirnos con los tonos de nuestra piel?
+
+Irán marcando los cambios de la política mundial, de la geopolítica y de lo que yo llamo la barbarie en el planeta Tierra.
+
+La crisis climática puede desencadenar una crisis política en la humanidad, una crisis civilizatoria e indudablemente, la antesala de una posible extinción. Detener eso es fundamental, conocer eso es fundamental, saber eso no solo desde la óptica de la política, sino desde la óptica de la ciencia.
+
+¿Qué puede esperarnos en cinco años, en 10, en 20? ¿Para la próxima generación, para nuestros bebés, hoy naciendo? ¿Qué puede esperarnos en el país de la belleza si no somos capaces de detener la crisis climática? ¿Y qué caminos tenemos que adoptar entonces?
+
+La travesía del ARC Simó​​n Bolívar
+Esas preguntas, las respuestas a esas preguntas, en parte las tendrán ustedes en esta travesía que inauguramos hoy.
+
+---
+
+## Segmento D008_S004
+
+- orden_segmento: 4
+- numero_palabras_segmento: 472
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+El Simón Bolívar surca hacia el sur, se va hasta el polo. Tendrán ustedes investigaciones científicas, cuidarán a los científicos y esas investigaciones volverán, se transmitirán en línea. Los periodistas están allí para ello. Los colombianos, Colombia, todos sabremos de esos resultados con miles de científicos de todo el mundo, de todas las naciones.
+
+Compartirán ustedes los resultados. Y la humanidad sabrá más profundamente qué está produciendo la economía, la codicia alrededor de la ganancia sobre las posibilidades de vivir en el planeta, sobre las posibilidades de vivir en Colombia.
+
+Ese es el tema de esta exploración y de ahí su importancia. De ahí lo estratégico. Claro que nos da orgullo, en medio del problema, el que podamos desarrollar ciencia, el que Colombia pueda desarrollar ciencia.
+
+Es al final el desarrollo humano propio. Nos podemos medir en términos de desarrollo humano, no a través de cuántas cosas poseemos en nuestras casas —si tenemos casa—, sino a través de cuánto podemos desarrollar el arte, la cultura y la ciencia. No al ser humano.
+
+¿El ser humano no se desarrolla por cuánto tiempo? ¿Cuánto es su cuenta corriente en el banco? El ser humano se desarrolla en cuánto sabe, en cuánto arte puede producir, cuánta investigación científica puede hacer.
+
+Así que los felicito. Al capitán de navío, que es el responsable militar de esta travesía. Y a Andrés Robledo, que tiene más de 25 años de servicio a Colombia y a la Armada, que ha sido jefe del Departamento de Operaciones de la Fuerza Naval del Pacífico, comandante del ARC Providencia y de la ARC Punta Soldado.
+
+Le encomiendo a estos hombres y a estas mujeres militares y no militares en sus manos, y que puedan regresar entonces a darnos —ojalá pudieran— buenas nuevas y a la Armada en general, una felicitación, no solamente por este empeño que viene de años atrás de desarrollar una industria naval en Colombia.
+
+Le hemos pedido a la Fuerza Aérea que lo intente. Se han dado ya pasos con Airbus, que se llama en Europa, para que podamos recomenzar el proceso de construir una industria aeronáutica.
+
+Una red férrea nac​​ional
+Y lo mismo les hemos dicho a las fuerzas, al Ejército de Colombia, tratando de utilizar Indumil, para que no solamente respondamos por cómo se hacen municiones y fusiles, sino cómo se puede construir una industria ingenieril que permita que el Ejército de Colombia pueda poner los puentes allí donde se caen, pueda comunicar el país, allí, en el territorio excluido, pueda hacer los ferrocarriles, que es el objetivo que ahora les he propuesto, como se ha hecho en México.
+
+Después de que destruyeron la red férrea de México, la primera línea férrea que se ha construido en los últimos tiempos, lo está haciendo el ejército mexicano. El Tren Maya le llaman con fines turísticos y económicos.
+
+---
+
+## Segmento D008_S005
+
+- orden_segmento: 5
+- numero_palabras_segmento: 482
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Colombia bien podría empezar también después de su red férrea destruida, iniciar un proyecto de red férrea que permita que el Ejército de Colombia le entregue al país la renovación de lo férreo, que es fundamental desde la perspectiva de la crisis climática, que aquí he narrado.
+
+Lucha eficaz contra el narco​​​tráfico
+La Armada es casi la fuerza más eficaz en la lucha contra el narcotráfico. Yo creo que es la más eficaz. Necesita de las otras fuerzas, indudablemente, para lograr operaciones de incautación del narcotráfico. Yo lo he pedido y ha sido la estrategia de seguridad fundamental que centremos el esfuerzo, no en cómo un joven consumidor es llevado a un calabozo. Eso no le hace ni cosquillas a los narcotraficantes.
+
+Y pareciera que fuera el tema central del debate político en Colombia. Porque como las palabras ocultan la realidad, también hay hechos que tratan de ocultar la inmensa realidad del narcotráfico en Colombia.
+
+Su transformación en estos momentos, claro, con llenar las cárceles de jovencitos o campesinos que cultivan hoja de coca, se le puede decir al mundo que estamos luchando contra el narcotráfico, cuando el narcotráfico se va tomando la política y el poder en Colombia.
+
+Esa no es una lucha contra el narcotráfico, es una lucha contra sectores de la sociedad a los que transformamos en enemigos internos para tener una excusa que se vuelve mentirosa, porque mientras se lleva al joven al calabozo, van saliendo los buques de este puerto, a veces cargados de cocaína, porque los cargan y a veces hay funcionarios públicos que dirigen la operación. Eso hay que investigarlo, indudablemente.
+
+Pero una forma de destruir o debilitar, al menos el narcotráfico, es la incautación de esas toneladas de cocaína, fundamentalmente, que salen de Colombia por los mares. Toneladas, no dosis personales. No hay que confundir una cosa con la otra.
+
+Las dosis personales del individuo, si le gusta o no le gusta y hay que ayudarlo, es con el médico y la médica, para que esos consumos no se vuelvan nocivos al ser humano.
+
+Pero al narcotráfico hay que incautarles son las toneladas de cocaína, de donde salen las grandes riquezas con que van, incluso despojando al campesinado de Colombia de sus tierras y a la ciudadanía colombiana de su democracia.
+
+Esas toneladas las incauta fundamentalmente la Armada, porque es en el mar por donde van, salen de las ensenadas de los puertos de Colombia y surcan los mares hacia los mercados de consumidores en otras partes del mundo.
+
+Aquí tenemos una operación qué comentar y que le pediría al comandante de la Armada que pudiera expresarse ante los medios de comunicación a profundidad, para determinar cómo es que se ha podido —y que la sociedad colombiana lo pueda entender— cómo es que se ha podido lograr la incautación según este informe de 189, 182 toneladas de cocaína en la operación Orión 11.
+
+---
+
+## Segmento D008_S006
+
+- orden_segmento: 6
+- numero_palabras_segmento: 476
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Porque la operación 12, Orión 12 está en desarrollo y ya terminará con una cifra igual o más grande que esta. Son 182 toneladas de cocaína, con la ayuda de 40 países del mundo, con sus flotas en estos mares, pero con la Armada Nacional en el centro.
+
+182 toneladas de cocaína sí que le hacen daño al narcotráfico. Si las pierden. ¿Cuántos millones? ¿Decenas de millones? Centenares, incluso miles de millones de dólares son.
+
+¿Cuántas armas dejan de comprar y cuántos políticos dejan de comprar? ¿Cuánto debilitamiento se les puede producir? Eso hay que ampliarlo aún mucho más, como la principal estrategia de seguridad de Colombia, destruir a los narcotraficantes. Ese es el objetivo.
+
+Los narcotraficantes no viven en Buenaventura, no viven allá en el Cañón del Mickey o en el Catatumbo, en la selva del Putumayo. Los narcotraficantes no viven donde está la gente pobre y que usan los narcotraficantes. Ya ni viven en Colombia. Son albaneses, son españoles, son serbios, son holandeses, son chinos, son mexicanos, son guatemaltecos, son uruguayos y argentinos, son indudablemente colombianos, son estadounidenses y de otras naciones.
+
+Lo que tenemos ya es una mafia multinacional dominando los mercados ilícitos del mundo, entre ellos los de la cocaína, incluso, ya del Océano Pacífico. Hablando de océanos, tiene dos rutas que se están construyendo terribles, porque por el norte va una ruta de insumos chinos hacia la producción de fentanilo en México que mata a 100.000 personas al año.
+
+Triste resultado de medio siglo de una guerra fracasada en donde los norteamericanos empezaron a luchar contra la marihuana que hoy no está prohibida en el mundo y terminaron con una droga que yo denomino la droga de la muerte, en sus consumos, el fentanilo que mata a 100.000 personas al año.
+
+Por el norte va a esa ruta y ese fentanilo es como si una piedra hubiera caído sobre el mercado de la cocaína mundial, porque reemplaza o estanca consumos de la cocaína y entonces la cocaína empieza a expandirse a los lados y hacia el sur.
+
+Y entonces una ruta en el sur empieza a aparecer en el Océano Pacífico de Suramérica, no solo de Colombia, hacia la China.
+
+De la China, un insumo de fentanilo hacia Estados Unidos y como reacción, una sólida de cocaína hacia Australia y el Asia y el sudeste asiático. Las realidades de un mercado que va trayendo problemas, incluso geopolíticos.
+
+Le proponía al almirante —allá en Pearl Harbor— ¿cómo se llama? Aquilino, de origen italiano?
+
+Brindamos con un buen vino por la paz del mundo, porque en ese centro geográfico del planeta, Hawái, se ha convertido no solamente en el centro de la investigación de la crisis climática, sino que ha sido en la reciente historia del siglo 20 y 21 un centro de tensión de la posibilidad de una guerra mundial.
+
+---
+
+## Segmento D008_S007
+
+- orden_segmento: 7
+- numero_palabras_segmento: 464
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+El almirante norteamericano Aquilino sentía las tensiones crecientes que se están disparando en el planeta Tierra hacia una conflagración mundial. Lo sentía en su propia piel.
+
+Allí, donde los japoneses, algún día en el siglo 20, hundieron barcos y murieron miles de seres humanos en una guerra intensa y terrible que fue la Segunda Guerra Mundial.
+
+Allí, en ese escenario, discutiremos de estas dos rutas de China hacia los Estados Unidos, una estela de muerte y de Sudamérica hacia China otra estela menor de muerte. Eso implica un tratado internacional que no existe hoy. Implica mirar las cosas de manera diferente.
+
+Cómo 100.000 jóvenes pueden consumir algo que saben explícitamente, los va a matar en el corto plazo. ¿Por qué se suicidan así en masa? Qué pasa en esa sociedad y qué pasa en la nuestra, en Sudamérica para que aún mantengamos la tesis de que matándonos entre nosotros mismos vivimos mejor o más ricos; cuando lo que estamos es en una patria boba que se está destruyendo a sí misma.
+
+El camino de la c​​iencia
+Este es el camino que Colombia debe asumir. No es el camino de la riqueza fácil y de la muerte del vecino, sino el camino de la ciencia.
+
+El camino de hacer estos buques, el camino de usar las matemáticas para saber qué pasa en el océano, qué pasa en el hielo, qué pasa en la selva amazónica. Qué puede pasar como riesgo en la vida humana de toda Sudamérica.
+
+El camino del saber es el camino de Colombia. Abandonar la patria boba, como alguna vez llamamos una época de nuestra historia donde nos matábamos nosotros mismos.
+
+Cuando los buques españoles ya llegaban a nuestra costa a matarnos a nosotros. Esa patria boba tiene que ser abandonada definitivamente en la historia del país.
+
+La patria boba se hace matándonos entre nosotros. La patria grande se hace construyéndonos entre nosotros, construyendo las soluciones de los problemas de nuestras sociedades.
+
+Había una Gran Colombia alguna vez. Hasta República Dominicana, que está casi que siguiendo el norte de La Guajira, Mar Caribe adentro; República Dominicana quiso ser de la República de Colombia y Panamá era de la República de Colombia y la Costa Mosquítea era de la República de Colombia y parte de Costa Rica lo era.
+
+Y la capitanía de Venezuela, incluso, con los litigios del hoy, y Ecuador, y el sur de la actual frontera del Amazonas.
+
+Y esa gran Colombia fue perdiendo una palabra, Gran, y se volvió Colombia. Y esa pérdida de la palabra Gran se debió exclusivamente a que nos dedicamos a matarnos entre nosotros.
+
+De la Gran Colombia solo queda una Colombia y esa Colombia aún podría perder más de sus letras, el proyecto de la Nación, si nos seguimos matando entre nosotros.
+
+---
+
+## Segmento D008_S008
+
+- orden_segmento: 8
+- numero_palabras_segmento: 117
+- observaciones_segmentacion: Segmento final menor al mínimo; conservar si mantiene sentido
+
+### Texto
+
+Luego, el camino que tenemos es claro y evidente, el camino que tenemos para volver a ser una Gran Colombia es el camino del saber, de la cultura y del arte, el camino de ser solidarios entre nosotros y querernos como colombianos.
+
+El camino de abrazarnos en la pasión del corazón y en la razón del cerebro y no en la pasión de las muertes y del fratricidio.
+
+De la patria boba hacia la Gran Colombia tenemos un camino que seguir y este buque insignia de la ciencia, el Simón Bolívar, que fue el que creó la palabra Gran Colombia, es el camino que tiene que seguir la sociedad colombiana.
+
+Gracias por haberme escuchado y muy amables.
+
+---

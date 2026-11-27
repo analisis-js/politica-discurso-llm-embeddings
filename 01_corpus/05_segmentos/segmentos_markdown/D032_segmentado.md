@@ -1,0 +1,89 @@
+# Documento segmentado
+
+## Identificación del documento
+
+- id_documento: D032
+- nombre_archivo: DOC032_inauguracion_estacion.txt
+- numero_palabras_documento: 1545
+- numero_segmentos: 4
+
+---
+
+## Segmento D032_S001
+
+- orden_segmento: 1
+- numero_palabras_segmento: 435
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+https://www.presidencia.gov.co/prensa/Paginas/Inauguracion-de-la-Estacion-Energetica-Agrovoltaica-de-Isla-Grande-palabras-del-presidente-Petro-251217.aspx
+
+Inauguración de la Estación Energética Agrovoltaica de Isla Grande: palabras del presidente Petro
+
+Islas del Rosario, 17 de diciembre de 2025
+
+Aquí en la práctica, en la realidad, vamos avanzando en programas que se prometieron en la campaña presidencial, basados en estudios científicos, no en retórica ni en ilusiones falsas, que son fáciles de hacer en los discursos políticos, pero que no se pueden cumplir.
+
+​Este es un tema que se propaga por el mundo, y tiene que ver con una solución a toda la humanidad en el planeta: nos toca obligatoriamente dejar de usar petróleo, carbón y gas, hidrocarburos, porque su uso intenso y cada vez mayor, como venimos desde hace dos siglos, lo que hace es cambiar la química de la atmósfera. Por eso hay huracanes más fuertes, y por eso se eleva el nivel del mar sobre las playas y va anegando las islas.
+
+Muchas naciones que son de islas relativamente planas van a desaparecer, es un tema que la sociedad colombiana tiene que estudiar, porque se expresa de diferentes maneras: mientras en las playas es la subida del mar y en los mares es el endurecimiento de huracanes y de los vientos, en los lugares internos hay sequías, inundaciones súbitas por el crecimiento de las lluvias intempestivas. Hay una revolución climática que no le hace bien a la vida, la ciencia ha dicho que, si no detenemos el consumo de petróleo, carbón y gas, no sobreviviremos como especie en el planeta. Y no será lejos dentro del presente milenio, sino en cien años o doscientos. Y nuestros hijos vivirán cada vez peor, y nuestros nietos peor que nuestros hijos, y habrá una generación cercana que verá la extinción de la vida en el planeta. Por tanto, nos toca ser responsables, no esperar tres generaciones, cuando ya es tarde. Nos toca cambiar nuestra forma de vida, que no es para peor sino para mejor, como aquí lo estamos demostrando si lo hacemos rápido.
+
+Esta instalación, hecha con dinero público la podría hacer cualquier familia si tuviera los ingresos suficientes en casa. Cualquier comunidad de manera ya colectiva, como aquí sucede. Así podríamos ir superando problemas, si tenemos suficiente sol. Y aquí lo que hay es suficiente sol, en todo el Caribe colombiano, más en La Guajira que en Córdoba, pero sol suficiente para dotar a todo el Caribe de energía limpia. Se llama energía limpia porque no usa hidrocarburos basados en C carbono, que es el que calienta el planeta.
+
+---
+
+## Segmento D032_S002
+
+- orden_segmento: 2
+- numero_palabras_segmento: 382
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Hoy el Caribe es el que paga más altas tarifas de energía, porque tiene unos intermediarios poderosos, uno se llama Afinia, otro se llama Air-e y ha quebrado. Estamos tratando de recuperarla públicamente. Se trata de un negociado que se ha chupado a buena parte de la riqueza del Caribe y de los ingresos de las familias, pagando enormes cantidades de tarifa eléctrica cada mes.
+
+​PROPIEDA​​D COMUNITARIA
+Como todos aquí sabemos, esto no es propiedad de EPM ni de Afinia, esto es propiedad de ustedes, en forma pública o comunitaria. Ya no hay un gigante que los esté extorsionando todos los meses, solo hay que gestionar para que esto no se acabe. Empezar a tener jóvenes que aprendan de tecnología eléctrica para limpiar los paneles, para reemplazarlos cuando alguno se dañe, para mantener la eficiencia. Si esto se hace en todo el Caribe, tendríamos más riqueza y más trabajo, incluso para hacer los paneles. Podemos lograrlo, y estamos haciendo ese esfuerzo para hacerlos en todo el Caribe de Colombia. Vendrán de China seguramente, que es el país que más hace paneles solares en el mundo. Pero podemos llegar a hacerlos nosotros, y en esa medida dotarnos de nuestra propia energía sin mayor costo.
+
+​Mientras más disminuye el costo de la energía, más podemos hacer productivo nuestro trabajo. Sólo imaginen si podemos pescar y guardar la pesca a bajo costo, imaginen lo que se puede desarrollar en turismo, lo que se puede desarrollar en cada casa, en hacer cosas para vivir de ellas, del trabajo, etcétera.
+
+Esto hay que extenderlo a todas las islas del Caribe. Yo le pediría al ICCE, por aquí está, que mire todas las islas, no sólo del Rosario sino del Caribe, hay cerca por aquí al frente de Sucre una isla que se llama Tintinpan: ahí vive muchísima gente, prácticamente no queda espacio sino para caminar, no hay espacio verde, es una isla que tiene su historia y la comunidad ha hecho de esa isla la más densa en población. Dicen que del mundo, no estoy seguro. Y allí todavía hay unos paneles solares que pusieron, yo los visité, son precursores de la energía solar. Pero la entidad que los puso no le enseñó a la comunidad a aprender a manejarlos, y entonces entraron en desuso.
+
+---
+
+## Segmento D032_S003
+
+- orden_segmento: 3
+- numero_palabras_segmento: 453
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Bonito sería que se expandieran los paneles solares no sólo en ese pequeño sitio, sino en todos los techos de las casas. Podría mejorar la calidad de vida de los habitantes de Tintinpan y más allá, llegando a Panamá en la Isla Fuerte, donde yo dormía en la playa de joven. Y más allá hasta llegar a San Andrés. ¿Qué hace San Andrés aun alimentando su energía con diésel, cuando el simple hecho de tener bien amarradas las placas en las casas ante los huracanes podría ayudarnos a que el turismo fuese más atractivo? Así además se pudiera estudiar mejor en las escuelas y la universidad, que no se ha podido aún instalar, pero podría ser la señal de un nuevo turismo para San Andrés, etcétera.
+
+EQUIVOCACIÓN D​E BUENA FE
+¿Y qué decir de grandes ciudades caribeñas como Cartagena o Barranquilla? Así que aquí hay una oportunidad para el Caribe. Les quiero decir incluso que poner estas placas podría ser un pacto hecho con las comunidades, porque aquí en las Islas del Rosario, como todos sabemos, ha existido el robo de gente muy adinerada, de fuera del Caribe, que se vinieron a tomar las islas sin pedir permiso, de puros avivatos. Y claro, se construyó una economía rara, donde los habitantes nativos terminaron siendo sus sirvientes. También eso hay que solucionarlo y una forma de solucionarlo acaba de suceder en este gobierno, a cargo del ministerio de Minas. No de la Agencia Nacional de Tierras (ANT) aunque está aquí la ministra de Agricultura, pero no habló. porque confundieron granja agraria con granja solar.
+
+Son las confusiones de la época, antes no habrían sido granjas agrícolas, pero ahora hay granjas solares. También se puede sembrar debajo, por supuesto, y lo que lograron el ministerio de Agricultura y la ANT fue duplicar, triplicar, cuadruplicar y hasta quintuplicar los arriendos que el gobierno estaba cobrando por el uso de las playas y las islas en hoteles y cabañas particulares de goce privado. Esto hace que se aglutine más dinero, y de acuerdo con una sentencia anterior de la Corte Constitucional, ustedes podrán negociar un porcentaje importante 20 o 25 por ciento. Pero hay que unirse, deben organizarse todas las islas del Caribe. Es más, esa sentencia es sólo para las Islas del Rosario, así que ustedes cobran una parte de esos arriendos para inversión pública comunitaria. Y podemos hablar de dos inversiones con ayuda del Estado, que no puede dejar abandonada a la comunidad. Es una alianza para hacer paneles solares donde más se necesiten. Ya sabemos cómo funcionan ya sabemos cómo se instalan. Los y las jóvenes colombianas pueden instalarlos, y las tecnologías modernas también pueden servir para tener agua potable en estos lugares.
+
+---
+
+## Segmento D032_S004
+
+- orden_segmento: 4
+- numero_palabras_segmento: 275
+- observaciones_segmentacion: Segmento final
+
+### Texto
+
+​DESALINIZAR A​​​​BARATA E​L AGUA
+No se necesita una tubería desde el área continental del acueducto del área continental, se necesita una desalinizadora, que también puede funcionar con paneles solares. Entonces, la energía abarata el agua. Desalinizar es agarrar la materia prima, el mar y con tecnología sale agua 100% más pura, y potable. Ya lo ensayamos en La Guajira, allá hay una gran cantidad de pozos. El agua sale del pozo, yo quise que saliera del mar, pero no tuve compañía en el ministerio de Vivienda y el viceministerio de Aguas Potables. Así puede salir agua potable para Santa Marta, y ayudar a Cartagena, y en las ciudades y pequeños municipios de la Costa. Serían plantas pequeñas por la cantidad de población, relativamente baratas en las islas del Caribe.
+
+Así las cosas, tener energía barata todo el día y agua potable barata y tener con qué vivir, indudablemente va a mejorar la calidad de vida de cada una y uno de ustedes. De eso se trata un gobierno, no de que la gente viva peor porque entonces es un mal gobierno, sino que la gente viva mejor. Ese sí es un buen gobierno, y no la gente multimillonaria que por sí misma puede vivir bien, pero falta de amor. A veces pierden el alma con tanta riqueza, mientras que la gente trabajadora, la gente humilde, la gente que ha construido realmente a Colombia y ha levantado con orgullo la bandera nacional, puede vivir mejor.
+
+Una feliz navidad para todas y todos ustedes, les agradezco su atención y espero seguir viniendo por estos lares a dormir en una playa otra vez.
+
+Gracias, muy amables.
+
+---

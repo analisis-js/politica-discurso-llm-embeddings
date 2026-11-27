@@ -1,0 +1,322 @@
+# Documento segmentado
+
+## Identificación del documento
+
+- id_documento: D006
+- nombre_archivo: DOC006_gobierno_escucha.txt
+- numero_palabras_documento: 4341
+- numero_segmentos: 10
+
+---
+
+## Segmento D006_S001
+
+- orden_segmento: 1
+- numero_palabras_segmento: 443
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+https://www.presidencia.gov.co/prensa/Paginas/Palabras-Presidente-Gustavo-Petro-durante-el-Gobierno-Escucha-desde-Villavicencio-Meta-231006.aspx; https://youtu.be/A-y5WyzreW4
+
+Palabras Presidente Gustavo Petro durante el Gobierno Escucha desde Villavicencio
+
+Hay unos planes del Gobierno con las empresas eléctricas y es que se inscriban en la transición energética: presidente Petro
+
+Villavicencio, 6 de octubre de 2023.
+
+Aquí se han tocado dos temas apenas, que es el tema eléctrico y el tema de la carretera, ambos indudablemente importantes, pero vamos a empezar por la carretera, porque durante todos estos meses hemos tenido diversos problemas, por todos conocidos, no se trata de repetir.
+
+Allí se conjugan en todo ese corr​edor dos problemas que se articulan entre sí.
+
+Uno es el sísmico –pasa por ahí una falla, el último terremoto de Bogotá tuvo su asiento, fue precisamente en un punto del corredor–, y el otro es el climático.
+
+El sísmico tiene que ver con una cordillera que se está moviendo aún por su juventud relativa respecto a otros sistemas orográficos.
+
+Esta carretera es relativamente joven en su surgimiento geológico y se mueve. Eso es lo que hace, digamos, los desplazamientos de parte, en masa, que caen.
+
+La última vez que estuve sobre el municipio de Quetame, prácticamente estaba cayendo, y al mismo tiempo las épocas de intensidad en las lluvias, que cada vez son peores por la crisis climática, pues traen los otros problemas que ya han llevado a muchos muertos en el mismo corredor.
+
+Ambas cosas juntas, pues nos colocan una situación de incomunicación casi que permanente entre la región y la capital de la República, con lo que eso significa desde el punto de vista económico para la región.
+
+Políticos pagan por bloqueos
+Adicionalmente, hay unos políticos que han estado pagando para que se bloquee la carretera, y eso hay que decirlo públicamente, en campaña electoral, buscando dividendos electorales. Entonces les pagan a unos pobladores por allí: bloquee la carretera, bloquee la carretera, bloquee la carretera, a ver si los camioneros tumban a Petro o a ver si la extrema derecha gana las elecciones en el Meta.
+
+Y eso –no me meto en elecciones– obviamente complica más aún la situación, porque tenemos el problema geológico, tenemos el problema climático y tenemos el problema politiquero juntos en la carretera.
+
+Hay un cuarto problema, pero me voy a reservar esto, porque me gustaría que la viceministra de Transporte (María Constanza Garcia), que está aquí presente –que me gustaría que pasara aquí porque desde allá no creo que se vea mucho por todos–, y que es experta en estas materias de ingeniería del transporte–, nos presente un balance a la región.
+
+---
+
+## Segmento D006_S002
+
+- orden_segmento: 2
+- numero_palabras_segmento: 480
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Aprovechemos esta reunión para ello. Supongo que los medios de comunicación regionales podrán hacer una labor un poco más extensa en comunicarlo al resto de la población, de qué es lo que está pasando en ese corredor, tanto en la concesión como en los problemas estructurales que tiene la vía, porque siempre sucede lo mismo, no importa la cantidad de plata que se invierta, ojo, vuelve y juega, vuelve y juega, y qué posibilidades tendríamos de soluciones hacia adelante.
+
+Así que, viceministra, tome la palabra.
+
+(…)
+
+Lo que tenemos es un problemón, que viene de larga data, pero que con la comunidad llanera y con el sector cundinamarqués, que se llamaba antes la provincia de Oriente, pues tenemos que ayudar a resolver de alguna manera, de manera más sólida de lo que hay.
+
+Fíjense, el problema financiero, no sólo el geológico, no sólo el climático, no sólo el politiquero, sino el financiero.
+
+Se hizo una concesión –ustedes saben quién es el dueño de la concesión–, en donde en los pedazos críticos donde se suponía iba a haber problemas. La concesión no paga, paga es el Estado, es decir, todos nosotros.
+
+Y la concesión cobra el peaje. Entonces los ingresos van para ellos, hacen el gasto de mantenimiento en lo que corresponde. Cuando vienen los desastres, el gasto es del Estado, es decir, de la sociedad colombiana.
+
+Entonces eso es la ley del embudo, lo ancho para ellos, lo angosto para uno.
+
+Y aquí y aparte un problema fundamental, porque cualquier derrumbe de estos, cualquier circunstancia, vale un billete.
+
+El Gobierno Nacional ha presupuestado en todo el proceso ese que se hace en el Congreso y no ha tenido en cuenta que puede ocurrir un desastre, además porque no podría; cuando ocurre, entonces resulta que del peaje no salen los recursos, sino que tienen que salir del bolsillo del Gobierno y no están.
+
+Entonces hay que ver cómo se buscan a ver y no están.
+
+Y entonces este es un problema grave estructural de las finanzas del proyecto que se hizo.
+
+Posibilidad de nac​​ionalizar vía
+Yo voy a comentarles, lo dejo como una discusión, está en borrador, pero uno de las posibilidades es nacionalizar la carretera.
+
+Yo sé que iba a salir un aplauso. Yo sabía que iba a salir un aplauso, pero obviamente es complicado, es complejo. Estamos hablando de la concesión al 54, que tiene unos flujos que siempre en estos negocios hay quien quiere ganar.
+
+Hay un problema judicial público en los Estados Unidos. Hay una ley que habla de esos temas que el gobierno quiere aplicar y hay una negociación que hay que hacer necesariamente.
+
+Entonces, del Ministerio de Transporte, con el conocimiento y con la gente que mejor conozca técnicamente la concesión, es importante que se haga un equipo, que se volverá un equipo negociador para la posibilidad de la nacionalización de la carretera.
+
+¿Qué significa?
+
+---
+
+## Segmento D006_S003
+
+- orden_segmento: 3
+- numero_palabras_segmento: 483
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Que parte del peaje entonces se puede invertir en donde hay los daños y no tengamos estos problemas, por lo menos desde el punto de vista de la financiación.
+
+Eso es lo que en borrador parecería más racional, pero obviamente hay que hacer sumas y restas, y hay una contraparte. La contraparte no puede sacar provecho ahora.
+
+Yo creo que, si la voluntad de ellos es solucionar los problemas graves que ellos mismos tienen, lo mejor sería una negociación lo más favorable posible al interés general.
+
+El interés general es que por lo menos, sabiendo que va a haber más problemas, tengamos los instrumentos para resolverlos y no estemos aquí de la garganta con cifras que no son fáciles de conseguir.
+
+Cuando uno dice 1,2 billones, pues gracias, pero no es fácil conseguirlos. Dejo ese tema ahí, puntos suspensivos, debe tener más desarrollo, pero que se cree el comité que se volverá de negociación para una posible negociación de nacionalización de la concesión.
+
+Ahí hay unos temas que ya no son solamente financieros, sino que tienen que ver con la ingeniería misma, con la realidad misma de la región.
+
+Corredor foresta​​l
+Digamos, si uno mira a un ambientalista, de hecho, yo estuve recorriendo ahí en una avioneta todo el trecho en campaña con un ambientalista, porque estábamos mirando el tema de la deforestación de la selva, en el Guaviare, y entonces por la entrada hacia Bogotá decidimos hacer un recorrido en todo el cañón, toda la zona.
+
+Y él me aconsejaba que la mejor forma de volver más sólida la obra es que no solamente debió haberse hecho así desde el comienzo, no solamente se tiene que mirar este tema como una concesión de infraestructura vial, sino que en realidad debería haberse visto como un gran corredor forestal verde desde el filo de un lado hasta el filo del otro, de tal manera que toda esa cordillera que se mueve pudiera mitigar sus movimientos a partir del bosque.
+
+Eso implica –porque uno podría hablar de un parque– una reserva forestal.
+
+Pero ahí hay actividades productivas campesinas, sobre todo ahí hay una población semiurbana de los pueblos que han vivido de la carretera, y entonces implica unas negociaciones que también van a ser complejas, que pasan de mi gobierno, pero que sí tiene un sentido si pensamos que todo el cañón se vuelva una reserva forestal, con algún tipo de actividad sostenible para la población que aún vive ahí.
+
+E incluso lo mencioné allá en uno de los puentes que se pusieron, que puede haber reubicación de población, porque una población viviendo en el riesgo no puede ser, una población ahí al lado de una quebrada no puede ser, una población donde ya el pedazo de la tierra se está cayendo en el río no puede ser.
+
+Reubicación de la pobla​​ción en riesgo
+Entonces hay que plantearse el tema de reubicación.
+
+---
+
+## Segmento D006_S004
+
+- orden_segmento: 4
+- numero_palabras_segmento: 497
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Y el tema de reubicación hay que plantearlo desde la perspectiva –y aquí hay un problema en Villavicencio, local, de este mismo estilo– el tema de reubicación no puede plantearse sino de acuerdo a la ley no sé qué del 2012, Ley de Emergencias, de desastres naturales.
+
+Esa ley dice que cuando hay que reubicar, cómo hay que encontrar el espacio de la reubicación, la autoridad competente puede decir cuál y en 15 días se vuelve, se compra, es una compra obligatoria y entonces se puede reubicar la población.
+
+Eso no ha sucedido en Colombia. Y no ha sucedido en Colombia básicamente porque la UNGRD es absolutamente temerosa en tomar las decisiones. Un alcalde lo puede hacer.
+
+Entonces en el caso de todo el cañón –le llamo yo– en donde hay población en riesgo que hay que hacer el mapa, la población debe ser reubicada. Y entre otras a través, quizás, si es población campesina, de los programas de reforma agraria que aquí se mencionaron, que también tienen que extenderse en el piedemonte llanero.
+
+Entonces esos son los elementos.
+
+No voy a mencionar otra idea porque solo podríamos dejar un estudio. Bueno, sí lo voy a mencionar, y es la posibilidad del ferrocarril, porque el ferrocarril.
+
+Una vez le dije yo, es una campaña llena de parodia. Y me dijo no, pero ¿cómo va a subir un ferrocarril, así?
+
+Pero es que los ferrocarriles no suben así, los ferrocarriles hacen así y se van metiendo en túneles como en Suiza, y podría ser más estable la obra de un ferrocarril que un viaducto como el que está diseñado, como el que está construido.
+
+El Ministerio de Transporte tiene la misión de por lo menos entregarle a la región, mientras estemos aquí, unos estudios de ingeniería, ojalá, hasta fase de diseño. Del ferrocarril Bogotá, no digo Villavicencio porque la salida podría ser en un punto cercano de acuerdo con las pendientes. Es un tema técnico, pero el Ministerio de Transporte tiene la instrucción de dejar ese estudio, si ese estudio dijese, no lo podemos predecir.
+
+Es mejor el ferrocarril en estabilidad que la carretera misma pues el pueblo llanero tendría una reivindicación y el pueblo bogotano también y el cundinamarqués que hay en el medio, que es lograr la construcción del ferrocarril, pero lo dejo como una idea solamente.
+
+El Gobierno se compromete a que se entreguen estudios al respecto. No sé si existan antes, pero por lo menos que sean los primeros estudios a fondo no una prefactibilidad, sino ojalá casi diseño, para que el pueblo llanero pueda escoger en adelante si esa es una alternativa.
+
+Ahora, los ferrocarriles no tienen peajes los ferrocarriles, no tienen peajes. Los ferrocarriles se financian o a fondo perdido del presupuesto nacional o por concesión, pero en lo que paga la concesión es la carga no el peaje bueno.
+
+Bueno, dejemos el tema ahí, son los esbozos y las posibilidades que estamos planteando para la obra, para la conexión Villavicencio-Bogotá.
+
+---
+
+## Segmento D006_S005
+
+- orden_segmento: 5
+- numero_palabras_segmento: 473
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+En resumen, la posibilidad de nacionalizar la concesión para que parte del peaje financie los puntos críticos que hoy no financia, ese es un punto. Dos, la posibilidad de estabilizar laderas a partir de una reserva forestal desde arriba hasta abajo que, además, cuidaría el agua de Villavicencio. Y tres, un estudio que nos permita comparar el viaducto existente con la posibilidad de un ferrocarril. Y dejaríamos aquí el tema de la carretera.
+
+Ahí sigue el tema energía. En energía también hay un problemón que voy a tratar de explicar y no es fácil. La fórmula de la tarifa que paga un usuario en energía. Hay el componente generación de la energía eléctrica. Las generadoras son unas empresas, después vienen quienes transmiten esa energía en los cables de alta tensión, ahí hay otras empresas. Después viene el que distribuye, se llama distribución, ahí hay otras empresas, y después viene quien llega a la casa que es la comercializadora.
+
+Entonces, hay generación, transmisión, distribución y comercialización. Hay cuatro espacios entre donde se genera la energía y la casa y en esos cuatro espacios hay empresas, empresas, empresas y empresas.
+
+La Empresa del Meta está en la última, comercializadora. Eso es lo primero que a uno le toca comprender, porque es la Ley de Energía Eléctrica que se aprobó por allá en el año 93, 94. En cada una de esos espacios las empresas se ganan un billete, se ganan un billete.
+
+La más importante es la generación lo que hace la comercializadora es comprarle energía a un generador y después le paga al distribuidor, porque va la energía por el cable hasta que llega a la región y entonces ahí sí le cobra al usuario. El usuario paga por tanto lo que cobra el generador, lo que cobra el distribuidor, el transmisor, el distribuidor y lo que cobra el comercializador. Y ahí le llega la factura.
+
+La parte más importante de esa factura está en la generación y el Meta no está generando energía eléctrica. Las generadoras están en otra parte y entonces lo que hace la comercializadora —tema a averiguar— es hacer un contrato con una generadora y entonces ese contrato es un montón total de energía suficiente para la demanda de la región
+
+A un precio tal, si ha hecho contrato el precio es un poco más bajo que si le toca ir al mercado que llaman bolsa. Esto es complicado. En la bolsa prácticamente la cogen del cuello y las tarifas las tienen que comprar mucho más altas por la forma como la Comisión Reguladora de Energía y Gas ha hecho las fórmulas. Tema que yo vengo criticando a nivel nacional porque las ha hecho en favor de las empresas y no de las personas. Y sobre todo y peor porque ha permitido mecanismos de especulación en contra de los usuarios.
+
+---
+
+## Segmento D006_S006
+
+- orden_segmento: 6
+- numero_palabras_segmento: 494
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Es decir, empresas que se ganan no una ganancia normal 10%, 15%, sino 5 y 6 veces más que lo que les cuesta producir la energía, es decir, algo parecido a la cocaína. Ya eso me la van a sacar ahí. Pero son las rentabilidades inmensas, bueno también podría decir algo parecido al petróleo porque también tiene esos mecanismos. El costo de producción es así, el precio de venta es así, la ganancia es enorme.
+
+Un Estado debe cobrar impuestos a esa ganancia enorme, las generadoras no están pagando impuestos sobre sus ganancias extraordinarias. Primera cosa a resolver, ¿EMSA tiene contrato o está comprando energía en la bolsa? Esa respuesta no la tengo aquí, pero digamos que se puede resolver.
+
+Si está comprando energía en la bolsa, la está comprando muy cara. Y aquí vienen los otros problemas. Si la está comprando muy cara y no tiene con qué, entonces no está comprando la suficiente que necesita el departamento y ahí vienen probablemente los apagones. Entonces, este es el tema que habría que estudiar.
+
+¿Quién administra EMSA? Hasta donde yo sé pues el anterior gobierno, porque las electrificadoras que tomó el Estado, que nacionalizó el gobierno porque entran a una cosa que se llama, digamos, a una sección que es administrada por un funcionario del Ministerio de Hacienda —el funcionario del Ministerio de Hacienda hasta hace muy poco era del gobierno pasado— y determina quién maneja cada empresa eléctrica y cómo distribuyen quién maneja cada empresa eléctrica de las que tiene la nación, la politiquería.
+
+Y entonces un manejo politiquero de una empresa de estas en un problema como el que acabo de mencionar, pues como vienen a ordeñarle los recursos, pues la deja muy débil financieramente para ir a comprar en bolsa, donde el precio está hasta el techo, la energía que necesita toda la comunidad.
+
+Usted, el sindicalista que habló aquí, dijo que ni siquiera las utilidades se reinvierten, sino que se las chupan todas. Pues claro, la empresa debe tener una debilidad financiera en un momento de tormenta eléctrica, de precios altísimos.
+
+El precio del kilovatio hora en la generación está a 1.100, y la mayoría de las generadoras son hidroeléctricas, donde el kilovatio hora les vale 200. Es decir, que se están ganando la diferencia entre 200 y 1.100. ¿Quién paga eso? El usuario.
+
+Yo quise intervenir de inmediato y un magistrado me hundió el decreto —esa era la costumbre— teniendo yo mismo facultades constitucionales para intervenir en el mercado de los servicios públicos.
+
+Entonces va a haber un proceso bastante duro en donde la CREG va a tomar decisiones de cambio de fórmulas con un objetivo que al menos no se especule con el precio. El precio que pague la gente es el de una ganancia normal sobre unos costos que pueden variar, sobre todo ahora que viene la sequía y a la que hay que prepararse, porque viene duro. Entonces, esa es la explicación del contexto.
+
+---
+
+## Segmento D006_S007
+
+- orden_segmento: 7
+- numero_palabras_segmento: 458
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Hacia la transición ener​gética
+EMSA va a cambiar su administración. Vamos a intentar que la gerencie alguien que sepa que no se preste a la politiquería, que sea independiente, que garantice por lo menos una gerencia. Hay unos planes con las eléctricas que el Gobierno Nacional tiene, unos planes que estamos estudiando, porque nosotros queremos que ese grupo de empresas se inscriba en la transición energética, lo cual significaría —de eso hablé con el Alcalde ahora— que la región genere energía eléctrica, que, digamos, es lo que más abarata, que la región genere energía eléctrica aprovechando sus recursos.
+
+Uno de esos recursos se llama sol, y la energía solar se puede poner, no más aquí, si esto tuviera, en vez de estas tejas de cinc, si el rector las pudiera cambiar por paneles solares, aquí radiaría energía para todo el colegio, de una manera más barata, incluso gratuita para el colegio.
+
+Entonces, si estos planes se extienden, si el municipio puede ser un generador de energía eléctrica, y si hay un plan, que es lo que queremos que se pueda extender a los barrios, a las comunidades, a las familias, para poder reemplazar, si se puede, techos por techos de paneles solares, el Meta podría generar energía eléctrica, y sería una energía eléctrica barata, por lo menos más barata de la que compra EMSA, EMSA se convertiría en un gestionador de la generación de las familias y de los barrios y de los municipios de energía eléctrica.
+
+Entonces, este es un plan, que es lo que nosotros propusimos en nuestro Plan de Desarrollo, que queremos que se empiece a implementar.
+
+Apenas tengamos el control de EMSA, EMSA debe presentar un programa de transición energética en el departamento del Meta, es decir, las circunstancias en donde lo que ustedes tienen, como empresa es un intermediario, debe variar en que ustedes también generen energía eléctrica, sea de manera pública, sea de manera familiar, sea de manera barrial, incluso, con empresas que se pueden colocar en la región y que pueden, pues a partir de cumplir los pasos que son dispendiosos, generar energía eléctrica en la región.
+
+Es un objetivo fundamental de desarrollo, una región que genere energía eléctrica es fundamental, porque si no ustedes viven como prestados, ¿cierto?, y si por allá se cortó la línea o hubo una sequía y se acabó el embalse, aquí viene el efecto.
+
+Mientras que ganar generación de energía eléctrica es ganar poder, poder económico.
+
+Hay otro tema que se tocó y finalizo con eso, que es la tierra, la agricultura, porque al final, en campaña yo proponía que el pueblo llanero, que no es que haya votado mayoritariamente por mí, ¿cierto?, allá en el Casanare, bueno —no voy a hablar del Casanare—.
+
+---
+
+## Segmento D006_S008
+
+- orden_segmento: 8
+- numero_palabras_segmento: 456
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Digamos, lo que yo proponía es, dado que la crisis climática trae aparejada la decadencia de la economía petrolera y el Meta vive del petróleo, que cada vez será menos importante. Ya cayó un 25% sus exportaciones. Dado eso, el Meta tiene que saber que si se acaba eso hay que reemplazarlo por otra cosa.
+
+Eso se va a acabar paulatina, pero rápidamente, entonces debe crecer el sustituto, paulatina, pero rápidamente, si no, hay una crisis. Y lo que yo creo que puede crecer en la región es la agricultura y la agroindustria, e implica el uso eficaz y eficiente de la tierra y del agua.
+
+Entonces me gustaría que la ministra de Agricultura aquí presente pudiera decirnos cuáles son los planes regionales de reforma agraria y de desarrollo agrario que se están implementando para la Altillanura, para el Piedemonte y para el Llano en general y para el Meta.
+
+Eso necesita plata. Sin plata eso no se vuelve realidad. La diferencia entre la realidad y el discurso es la plata y la voluntad, porque sin voluntad no se hace.
+
+Así va la inflación​ en Colombia
+Entonces, el Banco Agrario aquí juega un papel fundamental porque es donde está la plata. Y la política de crédito que la tenemos, que acaba de salir el dato de inflación, nosotros llegó a ser 13% anual, la más alta, el pico, en este momento ya está en 10,99, esperemos bajarla a un digito para al final del año.
+
+Esto tiene una importancia, porque si al final del año es un dígito, vamos a suponer 9%, el salario mínimo nosotros lo elevamos 16% en diciembre pasado. Es decir, que el salario mínimo durante todo este año creció 16%, pero los precios crecieron 10, se ganó 6 puntos reales.
+
+Eso significa que una parte importante de la población, la asalariada, porque la población no asalariada que gana menos del salario mínimo tiene otras dificultades, que es la más pobre, pero por lo menos toda esta población ha subido sus ingresos realmente con respecto al año pasado.
+
+Eso hace que demande más. ¿Qué demanda? Demanda pues cosas, más comida, más vestido. Eso es lo que está haciendo que crezca el empleo en Colombia. O sea, el empleo en Colombia está creciendo porque aumenta la demanda de las familias. En cambio, la inversión está cayendo porque tenemos una tasa de interés en el 13,25%.
+
+La tasa de interés está por encima de la inflación ya, y para un productor que se tiene que endeudar, pues lo piensa tres veces. Yo puedo endeudar, además, porque no le prestan al 13, le prestan al 13 más, se va volviendo 20, 25, 30 y si se fue a gota a gota, pues se fregó.
+
+---
+
+## Segmento D006_S009
+
+- orden_segmento: 9
+- numero_palabras_segmento: 484
+- observaciones_segmentacion: Segmento generado por agrupación de párrafos
+
+### Texto
+
+Entonces, en la tasa de crédito al productor hay un problema, y es que el Banco de la República la tiene muy alta. Eso significa que el Banco Agrario tiene que darse una pela, que es poner una tasa de interés por debajo de la tasa de interés del Banco de la República.
+
+Esa es una pela. De esto ya hemos hablado. Se puede, el presupuesto entonces tiene que subsidiar, pero la actividad crediticia en el mundo agrario aquí se vuelve fundamental si la tasa de crédito es barata. Y eso implica que por el lado de los productores agrarios haya asociatividad.
+
+Acabamos de ver aquí en el crédito. Si entregamos un crédito a cada persona, pues sí, resuelve algo cinco, seis millones —las señoras que estuvieron aquí recibiendo eso—. Pero es mucho mejor que hubiera 10 señoras, ¿cierto? Y que en vez de recibir 60, recibieran 100, 120 millones, porque entonces la empresa que pudieran colocar sería mucho más poderosa que la que una señora sola puede poner.
+
+Para eso tiene que haber asociatividad, que a los colombianos no nos gusta. Tiene que ser una asociatividad libre. Esa asociatividad es clave en los productores agrarios, porque es lo que nos permite poner la industrialización.
+
+Para transformar el maíz en comida de pollos, ¿cómo la ponemos aquí? Pues no puede ser en cada finca de un productor de maíz.
+
+Hay que asociar a los productores de maíz de toda una región para poner una planta que compre el maíz. Esa planta debería ser una cooperativa de los productores de maíz. Y nosotros deberíamos pensar como arroceros. Ahora, ¿con qué plata se pone la planta? Pues tenemos que darle un crédito.
+
+Y ese crédito tiene que salir del Banco Agrario. Y la tasa de interés tiene que ser muy barata porque si no, el proyecto no se sostiene.
+
+Entonces, ese tipo de proyectos, que ya llevamos un año gobierno, ya tienen que estar listos. Son más bien de iniciativa privada, nosotros lo que ponemos es el crédito. Pero hay que poner también una asesoría técnica porque a lo mejor los productores de maíz que hay en la región pues no tienen idea de cómo se pone una planta de industrialización de maíz.
+
+Entonces, ¿quién va a diseñarla? ¿Quién va a decir, es así, es así, ¿vale tanto? Entonces, tiene que haber una entidad de gobierno que ayude. Y no se puede demorar tres años porque entonces, ya el próximo gobierno progresista tendría que resolver el problema. Aquí hemos tocado los temas no todos.
+
+En mi anterior reunión aquí hablamos de una sede de Escuela Superior de Administración Pública. Ahí sigue el nombre pelado.
+
+No han puesto ni un ladrillo. Entonces, consejera, eso no puede ser porque nosotros no podemos venir aquí con, digamos, iniciar un proyecto que no se vuelva realidad. Y aquí hablamos de una rehabilitación que hay que ayudar a hacer de vivienda.
+
+---
+
+## Segmento D006_S010
+
+- orden_segmento: 10
+- numero_palabras_segmento: 73
+- observaciones_segmentacion: Segmento final menor al mínimo; conservar si mantiene sentido
+
+### Texto
+
+Entonces, estos son temas que, aunque no los hablamos aquí, hay que garantizar que se realicen. En la próxima venida que tenga por acá, entonces, hablamos de todos estos temas, ojalá con procesos ya constructivos, no discursivos, sino con proyectos que se estén desarrollando en concreto.
+
+Gracias a todos ustedes por su presencia aquí. Y les agradezco. Y ya nos vemos en la próxima reunión de Petro Escucha en Villavicencio.
+
+Gracias, muy amables.
+
+---
