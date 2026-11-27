@@ -1,3 +1,3 @@
 # 02_asignacion_hard
 
-Este espacio incorpora todos los prompts usados en el proceso de LLM
+Prompt usado para la clasificación binaria por el modelo LLM
