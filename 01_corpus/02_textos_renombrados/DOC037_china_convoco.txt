@@ -1,0 +1,39 @@
+https://www.presidencia.gov.co/prensa/Paginas/Alocucion-del-presidente-Gustavo-Petro-desde-China-en-la-que-convoco-250514.aspx; https://youtu.be/2t-R7maAsOA
+
+Alocución del presidente Gustavo Petro desde China, en la que convocó a los colombianos a cabildos abiertos ante la negativa que dio el Senado a la Consulta Popular
+
+Beijing (China), 14 de mayo de 2025
+
+Hemos recibido en este momento los hechos que han acontecido en el Senado de la República. No nos sorprenden, quizás era esperable, tenía cierto optimismo.
+
+Con mucha generosidad, como jefe del Estado, he pedido, explicado, discutido, a través de cartas, de la palabra hablada, a la clase del gran capital en Colombia, a los que han concentrado la riqueza en Colombia, después del estallido social, después que 11 millones y medio de electoras y electores deciden dar un mensaje a esa misma clase, que es el momento de un acuerdo, que es el momento de una mejor justicia, que en el país más desigual de la tierra, el más improductivo, el de la jornada más larga, en donde se conculcan derechos establecidos por la Constitución, bien se puede hablar y acordar como una especie de tregua, un mejor vivir para las colombianas y los colombianos, y ver allí un camino indudable de paz, de democracia, de construcción de una gran nación. 
+
+Las respuestas han sido la burla, han sido el engaño, ha sido la calumnia permanente en los medios de comunicación, la destrucción moral de quienes tuvimos, quizás, la osadía de ganarles las elecciones, por primera vez, pero no esperábamos un hecho tan dantesco como el del Senado de la República.
+
+Es que ni siquiera fueron capaces de ganar en la consulta popular a través del voto de senadores limpios, tuvieron que hacer trampa, trampa como en el fraude del 19 de abril de 1970, que nos condujo a décadas de violencia, repetirlo como si se pudiera repetir la historia.
+
+El senador que trata de votar y no lo dejan, como le sucedió a la senadora Marta Peralta, o el secretario mañoso que, al parecer, ha hecho un voto por allí subrepticiamente; el que no se convoque a todos los asistentes a votar, para eso hay una campanita; el que ha acelerado, profundamente acelerado en el alma, el presidente del Senado viendo que tenía un voto de ventaja, cierra la votación, mañoso, creyendo que así se hace la historia de Colombia, y así no se hacen sino payasadas, así no se convoca al país sino a la violencia, a la reacción, a la venganza.
+
+Mal paso el que ha dado una parte del Senado de la República y su presidente, y creo que es el momento de contestar, pero debemos contestar con la sabiduría de un pueblo decidido, que ya demostró que es mayoría, tanto en las plazas públicas como en las encuestas esas que hacen, de todas las formas el pueblo colombiano ha dicho: déjenos expresar, queremos decidir sobre los derechos de la gente misma, no por tal o cual candidato, si no lo que se estaba discutiendo es si tiene derecho la gente a una jornada de ocho horas, ¡por Dios!, si tiene el joven derecho, si trabaja, a un salario; si tiene derecho el campesino o la campesina a una pensión; si tiene derecho la mujer que está menstruando a que pueda ir un médico si el dolor no la deja trabajar; si tiene derecho la madre comunitaria, que ha cuidado niños y niñas por generaciones en Colombia, a tener un salario, miren lo que hicieron con el jardín infantil de Bogotá que al privatizarlo se lo entregaron a un tal Freddy (Castellanos) y violó a los niños.
+
+No son suficientes las pruebas, los hechos que indican que llegó el momento de hacerle caso a la Constitución y defender derechos que son de la gente, mínimos pero fundamentales.
+
+Tienen que callar al pueblo, pues creo que la respuesta es no callarse, hoy actúo como jefe del Estado: le ordeno como jefe de las Fuerzas Militares y policiales de Colombia no levantar un solo arma contra el pueblo, es una orden de su comandante, cuidemos los edificios que no haya violencia; le solicito al pueblo de Colombia no ejercer violencia contra ninguna cosa, contra ningún vidrio, contra ninguna persona, pero decidir la respuesta y con contundencia. 
+
+Cabildos abiertos en todo el país
+
+Y, para ello, los convoco y las convoco bajo la espada de Bolívar que ese día dijo, nos lo señalamos como la guía de nuestro movimiento, movimiento de la ciudadanía toda, movimiento de la República de Colombia, porque la base de la República es el pueblo, a reunirnos en cabildo abierto en todos los municipios de Colombia, en la plaza, en donde puedan, si llueve, bajo el techo del concejo municipal, para esperar y tomar decisiones, para debatir en asamblea permanente; le solicito al cabildo abierto de Bogotá, allá en el concejo distrital, en la plazoleta si no lo dejan entrar.
+
+Que se reúnan las organizaciones a escala nacional, la federación de cooperativas, la federación nacional de la acción comunal, la coordinación nacional campesina con su millón de inscritos pidiendo tierra en Colombia, las centrales obreras, el movimiento juvenil que dio, por primera vez, el paso en este movimiento actual, el de los aprendices del Sena, quienes no están cansados a las organizaciones femeninas, a la minga indígena, a la diversidad colombiana, a la coordinación de organizaciones afro, a los movimientos de toda la cultura, en el referendo (Consulta Popular) que estábamos proponiendo, había una pregunta sobre si la artista podía tener pensión, a la diversidad colombiana allí para que propongan y todos los cabildos municipales discutan si se aprueban o no las propuestas que el mismo movimiento popular debe lanzar, tenemos unas, pero le corresponde al pueblo tomar la decisión. 
+
+Este es el momento del pueblo, lo dijimos. Llegó la hora del pueblo. 
+
+La respuesta a la corrupción y al fraude dentro del Senado será tranquila, será alegre, no ejercerá violencia sobre nadie, ¡ojo!, la violencia es de ellos, no del pueblo, pero tiene que ser profundamente contundente. No esperamos al año entrante. 
+
+Le solicito al Senado poner de nuevo en votación la consulta popular.
+
+Le solicito al pueblo de Colombia, estaré dispuesto a cumplir sus órdenes como jefe de Estado, tomar la decisión contundente como respuesta. Llegó la hora del pueblo. 
+
+Como jefe de las Fuerzas Militares y policiales de Colombia, la orden es no levantar un solo arma contra el pueblo. 
+
+Gracias, señoras y señores, por haberme escuchado.

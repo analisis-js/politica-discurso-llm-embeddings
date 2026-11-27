@@ -1,0 +1,151 @@
+https://www.presidencia.gov.co/prensa/Paginas/Palabras-del-Presidente-Gustavo-Petro-en-el-Dialogo-con-Presidentes-de-Junt-221204.aspx; https://www.youtube.com/watch?v=_T4CKBPy4UM
+
+Palabras del Presidente Gustavo Petro en el Diálogo con Presidentes de Juntas de Acción Comunal
+
+Pasto, Nariño, 3 de diciembre de 2022.
+
+Bueno, un saludo a los presidentes, vicepresidentes, representantes y miembros de las Juntas de Acción Comunal del departamento de Nariño. Al presidente de la Asociación de Juntas de Acción Comunal de Pasto, Carlos Zambrano; al presidente de la Federación Departamental de Juntas de Acción Comunal, Yamid Meneses; al Gobernador del departamento de Nariño, Jhon Alexander Rojas; al Alcalde de la ciudad de San Juan de Pasto, Germán Chamorro de la Rosa; al Viceministro general del Interior, Gustavo García Figueroa.
+
+A los Congresistas de la República, los funcionarios del Gobierno Nacional, a los Alcaldes municipales que nos acompañan, y en general, a toda la ciudadanía aquí presente; a los medios de comunicación, a los mandos regionales de las Fuerzas Militares y de la Policía Nacional, a los representantes de las comunidades indígenas; un saludo a la Fundación Cultural Indoamericano que nos recibió, y a toda la ciudadanía en general.
+
+El tema de diálogo que aquí se ha escogido, y el protagonista de esta reunión indudablemente es la acción comunal. La acción comunal en Nariño tiene un porcentaje de juventud más elevado que en el resto del país.
+
+Y una de las tareas de la acción comunal, en general, y de las personas que representan las acciones comunales en la institucionalidad nacional, debe ser el rejuvenecimiento, porque si no, no hay futuro, así de simple; rejuvenecer la acción comunal, sus formas, sus maneras de interpretar la sociedad, su estética, todo puede ser sometido a que se convierta en un medio de rejuvenecimiento.
+
+Rejuvenecer es clave, porque en 20, 30, 40 años cuando nosotros no estemos, quienes van a dirigir este país en general son ustedes, los jóvenes.
+
+Ya comienza un proceso de transición, el cambio mismo, la posibilidad de tener un Gobierno de cambio, no ha sido más que por el producto de un millón de jóvenes entre 18 y 22 años, muchachos y muchachas que decidieron como nunca ir a votar, ir a la urna y eso cambió completamente el panorama político del país.
+
+Debe ser el comienzo de una transición que, cada vez, más y más deje espacios a las nuevas generaciones, para hacer el relevo que nos corresponde; ojalá podamos entregarles un país en paz.
+
+
+Le puede interesar: Centenares de jóvenes detenidos por participar en la protesta social serán declarados gestores de paz antes de Nochebuena en Colombia: Presidente Petro​
+
+
+
+No muy lejos de aquí, en el Cauca, ya hay tres muertos del Ejército; incluso no se ha podido llegar al lugar por dificultades climáticas como en todo el país ya ocurre, que significa la incomprensión que existe aún hoy de la inmensa necesidad de la paz, de abandonar ese periodo de la historia que aún está entre nosotros, en donde nos autodestruimos, nos matamos los unos a los otros, como si ese fuese el camino para construir una nación, y una nación no se construye así, se destruye así.
+
+Es, quizás, por estas violencias sistemáticas, casi que perpetuas, que nos acompañan desde el origen mismo de la República y desde antes, que no hemos podido avanzar más en los terrenos del desarrollo económico, del conocimiento, de la justicia social, de la libertad y de la democracia.
+
+El Gobierno del Cambio debe construir esas posibilidades de la paz, y las posibilidades de la paz no son simplemente las de lograr negociaciones con los grupos armados.
+
+Ha iniciado una con el ELN; se anuncia otra desde una perspectiva diferente, con cerca de 1.500, 1.600 integrantes —oigan ustedes— esos nombres de los ‘Shottas’ y los ‘Espartanos’, las dos bandas juveniles en su mayoría negras, que controlan barrios de la ciudad de Buenaventura y que guerreaban entre sí, asesinándose negros, negros; negros jóvenes matando negros jóvenes, como si por ahí se pudiera construir el futuro de las negritudes en Colombia.
+
+El futuro de las negritudes en Colombia pasa porque tengan más poder, y en Nariño sí que deberíamos hablar del tema. Hasta ahora se está pensando en una verdadera sede de la Universidad de Nariño, en Tumaco, que es la segunda ciudad del departamento de Nariño.
+
+La gran pregunta que tendríamos que hacernos es ¿y por qué no antes? Y ¿por qué no desde el inicio?; ¿Acaso era que la Región Pacífica no pertenecía a Nariño?; ¿Acaso es que, por el color de la piel, se excluían las personas de la inversión pública?; ¿acaso no es por ello, que esa exclusión de territorios, territorios a donde llegaron los esclavos tratando de liberarse ellos mismos de la esclavitud, se convirtieron en territorios excluidos? Simplemente porque allí se habían ido rebeldes los esclavos a liberarse; no les gustaba la emancipación a quienes dirigían a Colombia.
+
+Y no les gustaba porque eran precisamente los esclavistas, los que gobernaban a Colombia. Y esa visión —lo he dicho en mi campaña electoral— se prorrogó en el tiempo aún después de la existencia legal de la esclavitud; se prorrogó como una cultura de la exclusión con unas mentalidades del racismo que han gobernado a Colombia y han gobernado a los territorios.
+
+Por eso una tarea fundamental de la acción comunal, en la Región Pacífica, es precisamente con el Gobierno Nacional, construir las condiciones de una nueva emancipación; una nueva emancipación que ya no tiene que ver, con cómo legalmente se quitan las cadenas de hierro, sino con cómo en la práctica nos quitamos las cadenas mentales de la nueva esclavitud. Y podemos incluir territorios.
+
+Leí algunas estadísticas de Ecuador, nuestro vecino, al cual considerábamos más pobre, siempre; más pequeño, con menos población, como si fuese una extensión de Colombia hacia el sur, recordando, quizás, la vieja idea de la gran Colombia y resulta que Ecuador hoy, en la misma región al sur de Tumaco, en territorio ecuatoriano, está exportando USD 5.000 millones en camarones a la China.
+
+¿Por qué ellos sí, y nosotros no? El mar no cambia de temperatura del lado ecuatoriano al lado colombiano, no es diferente. El territorio en general no es diferente. ¿Qué es lo que marca la diferencia cuando se pasa a la frontera de un lado al otro? Me decía el exsenador (Luis Fernando) Velasco, aquí Consejero de Regiones, que solo en una madera que se llama el balso, que nosotros usábamos muchísimo, yo lo usaba cuando era estudiante en los colegios, porque se podía trabajar facilísimo, es natural de Colombia.
+
+Los ecuatorianos exportan USD 900 millones al año, nosotros no, ¿Y entonces qué nos pasó? Pasó que nos atrofiamos en la guerra; pasó que esa misma región, en donde debería producirse hoy, cultivarse hay que llamarse ahora, camarón, o sembrar estas especies de madera, y sin ninguna dificultad física llevarlos por mar a la China o en Japón o a Corea o a Singapur; no hay nada que impida el acceso de esta región al otro lado del Pacífico, que no sea la incapacidad nacional que nos hemos producido nosotros mismos para no hacerlo.
+
+Si la región de Tumaco exportará USD 5.000 millones en camarones, tal como lo hace Ecuador, ¿realmente tendríamos a nuestra juventud negra, en el lado nariñense matándose entre sí? Cuando habría tantas posibilidades con esa riqueza de construir futuro, de construir ciudad, de construir conocimiento, que es el verdadero desarrollo de construir territorio y de construir región.
+
+A mí si me gustaría que ese diálogo que va a iniciar entre los ‘Shottas’ y los ‘Espartanos’, que no es más que un dialogo entre la juventud excluida y llevada a la violencia, tocara estos temas, tocara por qué el Pacífico colombiano es la única región de todo el Pacífico mundial, pobre; no hay otra, porque si ustedes cogen hacia el sur por América, pues encuentran esto que les hablo de Ecuador y encuentran a las grandes ciudades peruanas aún en el desierto: Lima, Arequipa; y encuentran todas las ciudades chilenas importantes de ese país. El único pedacito pobre del Pacífico suramericano, es el colombiano.
+
+Y si cogen hacia el norte, pues es que los centroamericanos construyeron sus capitales fue en el Pacífico, no en el Caribe; y si vamos hacia México pues ahí tenemos a Acapulco y todas las rutas principales que nos llevan a la octava economía mundial que es el Estado de California. Y qué decir más hacia el norte, cuando se llega al Canadá, a Vancouver, y si damos la vuelta por el otro lado, pues está el gran poderío Oriental de los asiáticos: los japoneses, los chinos, la gente de Malasia, Indonesia y más al sur Australia, no hay pobreza; no son regiones pobres por ninguna parte.
+
+Y entonces, ¿Por qué la única región pobre del Pacífico en el mundo es el Pacífico colombiano?
+
+Solo hay una razón, porque allí se fueron las personas de color negro liberándose de la esclavitud y los gobernantes herederos de los esclavistas decidieron olvidarlos.
+
+Es por eso, entre otras cosas, que no se desarrolló el sistema educativo superior en la ciudad de Tumaco.
+
+A nosotros nos toca recortar esas diferencias en cuatro años, diferencias y exclusiones de siglos; quizás haya que pensar en cómo eleg0ir otro gobierno progresista en los próximos otros cuatro años, pero esto que he mencionado y que nos muestra una necesidad para el departamento de Nariño que no es exclusivo de sus autoridades gubernamentales locales, tampoco de la organización popular, solamente la acción comunal, sino que es una corresponsabilidad de la Nación; sin la Nación es imposible recortar estas diferencias; tenemos que hacer ese plan en la región Pacífica nariñense que permita una segunda emancipación.
+
+La acción comunal del Pacífico, que espero este aquí presente, bueno, un poco solitario, pero la acción comunal de la región Pacífica nariñense debe ser nuestra aliada en la posibilidad de construir esta segunda emancipación. Es un tema de paz. Si eso lo logramos habrá paz en lo que ha sido hasta hace muy poco la región de mayor exportación de cocaína del mundo.
+
+¿Qué ha traído esa exportación? La violencia entre la población negra y la violencia en general en el departamento de Nariño, un departamento que era tradicionalmente pacífico.
+
+Si queremos hablar de seguridad tenemos que hablar de este tema. Están matando dirigentes sociales en las zonas donde compiten las agrupaciones narcotraficantes por el control de la cocaína. Sea por una razón, sea por otra, ese tipo de control mata a la sociedad civil, le quita el control sobre su propio territorio que pasa de la ciudadanía al grupo armado, al jefe del grupo armado.
+
+Si nosotros logramos un plan de segunda emancipación y seducir a la juventud negra de la región Pacífica con las sedes universitarias, con las posibilidades económicas que existen, indudablemente, estaríamos construyendo un baluarte fundamental, un pilar estratégico de la posibilidad de una Paz Total, es decir, de la seguridad. Así que los invitaría a que contempláramos la construcción de este plan; lo digo desde Pasto, deberíamos decirlo desde Tumaco, pero aprovecho la oportunidad para mencionarlo.
+
+Aquí en este lugar, el barrio Obrero, que se llama así porque es en el mundo obrero, en el mundo del trabajo, donde en tiempos contemporáneos se ha desarrollado lo mejor de las ideas progresistas del mundo, el progresismo no es nada sin el mundo del trabajo y el mundo obrero. Pues en esto que se llama el barrio Obrero hay una capital fundamental de las ideas progresistas de Colombia. Y esta reunión de la acción comunal en el barrio Obrero me parece sugerente; no estoy muy de acuerdo en que la acción comunal se convierta en una empresa, me parece que debe seguir siendo una organización popular.
+
+A los hospitales públicos los volvieron empresas ¿para qué? para quebrarlos. No pagándoles, dicen ya las estadísticas, $30 billones; pues lo que hicieron quebrar las empresas de salud, las empresas sociales se llaman, ¿cómo es la sigla?, (ESE), Empresas Sociales del Estado; las quebraron. Por eso tenemos una crisis de la salud y de la red hospitalaria, no solo en Nariño, eso está en todas partes.
+
+$30 billones es una cantidad enorme. No entiendo cómo en las encuestas dicen que la mayoría de las personas aplauden un sistema que ha quebrado literalmente la red hospitalaria en Colombia. $30 billones no los resiste como deuda nadie, ni el Estado podría resistirlo; y todo se concentró en la falta de pago al hospital por parte —oiga esta sigla— de las EPS, otras empresas.
+
+A mí me parece que la acción comunal debe ser una organización popular. Lo que pasa es que ha tenido una historia larga. Fue por allá, en tiempos del Frente Nacional, como una especie de correa de transmisión entre los partidos políticos tradicionales y la sociedad; fueron cooptadas por la politiquería. Aún recordamos como era eso, a través de las partidas que se daban del presupuesto. Y, entonces, si el presidente de la acción comunal era liberal, entonces el jefe liberal le pasaba la partida si era la mayoría; o al revés, si era conservador. Y la acción comunal terminó en eso que se llamó el Frente Nacional, que ya no existe.
+
+Después, como no era necesaria, porque se pasó a formas todavía peores del clientelismo, que es comprar el voto en efectivo, ahí fue que la mafia se tomó buena parte de la política colombiana porque tenía ese dinero en efectivo. Entonces, la acción comunal fue olvidada, quedó como un trasto viejo por allá en una esquina de las piezas viejas; nunca más la política se volvió a acordar de ellas.
+
+Yo pienso que es el momento de revitalizarla, lo he hablado una y otra vez en varias regiones. Otra vez, pero como organización popular genuina, es decir, como vocera de los intereses de la comunidad en la que tiene una jurisdicción.
+
+Y eso significa el apoyo del Gobierno a la acción comunal y unos puntos de trabajo en común; he propuesto algunos, no son los únicos, ustedes aquí han hablado, incluso, de algunos otros, pero hemos propuesto tres tareas y depende de las regiones: una tarea es la olla comunitaria donde hay hambre, donde hay hambre. Tenemos dificultades con eso. Se convocaron, aún hay que evaluar bien qué pasó o qué está pasando porque son pocas, 120 acciones comunales en todo el país, 120, las que han contratado con el Estado los recursos para que exista una olla comunitaria permanente en los barrios pobres de Colombia, es decir, prácticamente nada.
+
+Porque 120 Acciones Comunales serán máximo 120 barrios y veredas y ¿dónde está el hambre en Colombia? En miles de barrios y veredas, no tendría la cuenta, por lo menos 10.000 sería el mapa del hambre.
+
+¿No habrá hambre en Nariño?; ¿Será que, excepcionalmente, Nariño en sus barrios pobres, en sus veredas pobres, en el Litoral Pacífico ya no existe hambre y superó ese problema?; ¿O la Acción Comunal no se ha movido a recoger los dineros que tiene de emergencia el Gobierno para ver si en esas comunidades con hambre, al menos, tenemos un sistema de olla comunitaria que puede pasar después a ser un restaurante y después, ojalá, el año entrante a ser un Sistema Nacional de Abastecimiento Popular, de cosechas compradas en Colombia a los campesinos, para vender mucho más barato en los barrios populares con hambre del país? Pero tenemos que comenzar por algo, hoy hay una emergencia, el hambre no da espera.
+
+La emergencia hay que cubrirla con medidas de emergencia; no tenemos otra opción. La crisis climática, las circunstancias que ya traíamos atrás del covid (19), y que pareciera que otra vez vuelve, y las circunstancias mundiales de inflación, de crecimiento del precio de los alimentos que, lamentablemente, hoy importamos cuando podíamos producir en Colombia. Esa política ha llevado, junto a las circunstancias actuales, a una situación en donde el hambre ha crecido.
+
+Por tanto, yo invitaría a las Juntas de Acción Comunal a contratar con el Estado; allí hay una partida de $200 mil, $300 mil millones Para todo el país, para iniciar el proceso de abastecimiento alimentario del barrio popular y de la vereda, en condiciones de pobreza; para suplir necesidades de nutrientes y alimenticias.
+
+Hicimos una segunda propuesta que tiene que ver con lo mismo, porque ¿por qué están altos los precios de los alimentos en el mundo? Los análisis dicen que la parálisis del capitalismo mundial producido por el covid, en los años que pasaron, generó una especie de atranque en todos los sistemas de abastecimiento mundial que ha hecho que, entonces, suban los precios de las mercancías; y si a eso se agrega la guerra de Ucrania, que es una gran despensa alimentaria; y si a eso se agrega, y esto no lo dicen, a que cada vez hay menos tierra fértil en el mundo porque se evapora el agua en muchas regiones, producto de la crisis climática a través de sequías más intensas, entonces, se entiende por qué el precio de los alimentos ha crecido en el mundo y por qué nosotros, al abandonar la producción de alimentos en Colombia y pasarnos a importarlos —incluidos los fertilizantes— pues terminamos ahora pagando en dólares más; y como el peso cayó frente al dólar, entonces al volverlo pesos, los fertilizantes se duplicaron o
+se triplicaron de valor.
+
+El maíz que se importa hoy en Colombia se duplicó de precio; y el maíz era lo que consumían los pollos y las gallinas y, por tanto, la carne de gallina y la carne de pollo y los huevos se encarecieron; y por qué la comida los peces, en los cultivos de piscicultura, se encareció, porque también era el maíz; y por qué si a los cerdos se les daba maíz, pues también la carne del cerdo encareció, etcétera, etcétera, etcétera.
+
+Toda nuestra producción alimenticia interna ha subido de precio ¿Por qué el pan es tan caro hoy? Porque la harina de trigo con que se hace el pan es importada de Canadá y se duplicó su precio. Luego aquí hay unas necesidades que no tienen que ver tanto con la olla comunitaria, que es una medida de emergencia, sino que tiene que ver con incrementar la rentabilidad de la producción de alimentos en Colombia para producir más en Colombia y para poder solventar los nutrientes necesarios de la sociedad colombiana; eso se llama soberanía alimentaria, diferente al concepto neoliberal de la seguridad alimentaria, que era tener los dólares para comprar los alimentos en cualquier lugar del mundo. Mire qué crisis de hambre tenemos hoy en Colombia.
+
+La soberanía alimentaria es que nos podamos alimentar nosotros mismos y Nariño es un departamento productor de alimentos en su área andina.
+
+Entonces tenemos que hacer un pacto, un pacto que permita que esa producción de alimentos en la región Andina de Nariño sea rentable y garantice un mejor estar al campesino y a la campesina. Y hay muchos elementos que tendrían que haber con ese tema, pero uno de esos lo ha tocado la acción comunal y es una de nuestras propuestas: las vías campesinas.
+
+No le voy a llamar terciarias, porque esos son los nombres que los ‘yupis’ bogotanos les ponen a los programas para que nadie entienda de qué tratan. No, esas son las vías campesinas. Se han abandonado las vías campesinas, la crisis climática las destruye todas las veces. La vía campesina sale más barata y mejor si la construye la acción comunal veredal.
+
+Entonces, tenemos un trato que hacer: las acciones veredales rurales, las acciones comunales del mundo rural de Nariño —esto habría que extenderlo a todo el país— deben reunirse para establecer las prioridades de vías campesinas que se necesitan en el departamento de Nariño, por orden.
+
+Nosotros comenzaríamos de arriba abajo; quizás no acabemos, porque los presupuestos siempre son limitados, pero esas vías serían contratadas con las acciones comunales rurales del departamento de Nariño.
+
+Para eso, entonces, hay que organizar una asamblea de acciones comunales rurales del departamento y esto habría que extenderlo al resto del país, porque un elemento para tener más alimentos, incluso más baratos, y para mejorar las condiciones de la rentabilidad de producción de alimentos campesinos en Colombia, es tener vías campesinas; esas vías campesinas son las vías de la alimentación. No es el único mecanismo, porque habría que hablar de la tecnología, del crédito del Banco Agrario, etcétera, pero este es un papel que puede cumplir la acción comunal en el mundo rural en Colombia y esa es una segunda propuesta.
+
+Hemos hablado de la comida, hemos hablado de las vías ¿cuál es la tercera propuesta, compañero? Hay una tercera tarea que hemos propuesto, pero mis funcionarios no se acuerdan y es fundamental. No tiene tanto que ver con Nariño porque, y ahora hablaremos del tema, pero sí en donde existen las tierras fértiles planas que hay en Colombia.
+
+Los grandes valles, la región Caribe, en donde más alimentos se deberían producir pero no se producen, porque están en manos de muy poca gente, gente con una mentalidad que, surgida también de las estructuras políticas y sociales de Colombia y de su historia y, sobre todo, de una época contemporánea violentísima que desalojó a los campesinos de esa región, ha conducido a que sean grandes praderas sin utilización productiva.
+
+No tiene que ver con Nariño, porque Nariño no es un departamento de ese tipo de geografía nacional, pero sí tiene que ver con Colombia, se trata de la Reforma Agraria.
+
+La Reforma Agraria necesita un mundo campesino organizado, lo discutíamos ayer nomás, en la Convención Nacional Campesina, en Bogotá, reunida en Bogotá, está reunida aún en Bogotá.
+
+Se ha reunido, precisamente, en la Universidad Nacional de Colombia, más de 3.000 delegados para organizar un Movimiento Nacional Campesino que sea el sujeto de la Reforma Agraria; en eso la Junta de Acción Comunal Veredal juega un papel importante, porque yo creo que es la principal organización campesina que hoy le queda a Colombia; muchas fueron destruidas por la violencia.
+
+La convocatoria de las Juntas de Acción Comunal Veredales en las regiones de Reforma Agraria es fundamental, porque es la que puede organizar a las familias campesinas que necesitan tierra para tener del Estado parcelas suficientes para hacer crecer la producción nacional de alimentos; para cambiar la injusta tenencia de la tierra en Colombia; para cambiar definitivamente el paisaje de la enorme desigualdad social y para construir la base fundamental de la paz.
+
+Colombia puede tener paz si hay Reforma Agraria y esa tarea que está para el mundo, el paisaje y la geografía de las tierras fértiles de Colombia, planas en los grandes valles del país, también tiene una correlación en el mundo campesino de las regiones andinas de montaña sin esa posibilidad de acceso a la tierra fértil y plana del país.
+
+La manera como el campesinado minifundista de la región Andina de Nariño, del Cauca, de Cundinamarca, de Boyacá y de otras regiones de Colombia, que no pueden expandir la parcela, porque sus vecinos son otros pequeños minifundistas, es la industrialización asociativa de su producción.
+
+Vamos a poner el ejemplo de la papa pastusa. La papa está compuesta, está organizada a través, su producción se ha organizado, a través del pequeño minifundio. Los paperos, unas veces si el precio es alto tiene ingresos, otras veces si el precio es bajo se arruinan; tienen que vender la papa en la carretera o no sacarla de la tierra porque sale más caro y es solo uno de los ejemplos de lo que sucede en el mundo andino agrario de Colombia.
+
+Una manera de lograr que esa familia productora de papa tenga mayores ingresos y más constantes —lo mismo podría decirse de la pequeña producción lechera de Colombia— de los pequeños productores de maíz blanco que es el alimento que consumen los seres humanos, etcétera, es que se pudieran asociar para volverse copropietarios de la industrialización de su producción, es decir, que el arrocero fuese dueño también del molino, es decir, que la lechera fuera dueña copropietaria con muchos otros lecheros de la pasteurizadora.
+
+Si esos ciclos de agroindustrialización pudieran pertenecer al campesinado, para lo cual hay que asociarlo, el campesinado de Colombia tendría mejores ingresos, podría vivir mejor, podría tener una vida digna, quizás, llevar a sus hijos e hijas a la universidad.
+
+Esta tarea que es más profunda aún, más compleja, la industrialización de la producción agraria andina de Nariño es una tarea que también puede ser un pacto entre la acción comunal y el Gobierno Nacional.
+
+Son las tres propuestas que nosotros hemos hecho, sé que no son las únicas, sé que la acción comunal puede agenciar otro tipo de misiones en Colombia, pero podemos comenzar por estas tres.
+
+Para lo cual hay que facilitar el contrato entre la acción comunal y el Gobierno. Hay un poco de requisitos que lo impiden, hay que facilitarlo. Nosotros comenzamos por cambiar un decreto que prácticamente hacía imposible que una acción comunal se pudiera contratar; hay que facilitar aún más los datos; el RUT que necesitan como condición, no debe ser que la acción comunal vaya hasta donde la DIAN a pedirle allá al burócrata que esté ahí, que por favor un RUT; sino que se expida automáticamente, para eso están los sistemas, para eso ya existen estos aparatos, no es sino cruzar bases de datos de allá del Ministerio de Gobierno, compañero García, con los de la DIAN, se cruza y salió el listado de RUT de la DIAN.
+
+Y lo mismo si hay otros trámites; que la cuenta bancaria del Banco Agrario, pues si eso es cruzar el listado de acciones comunales, se hace en 30 segundos. El listado de acciones comunales registrado en el Ministerio de Gobierno (Interior) con el Banco Agrario que le da un número de cuenta a cada uno y quedan abiertas.
+
+Claro, si se empiezan con los trámites y los trámites que ya no se usan en el mundo, pues, entonces, nunca se hace un contrato entre la acción comunal y el Gobierno Nacional. Antes de finalizar este año tiene que haberse solucionado ese tipo de trámites para que, precisamente, esto que estamos hablando se pueda volver una realidad.
+
+Aquí en este lugar, en el año 2021, pasaron centenares de jovencitos que habían participado en las protestas detenidos. Hicieron lo mismo que en Chile. Cuando hicieron el golpe de Estado en Chile y mataron a Allende, porque al final lo mataron, trajeron a miles y miles de jovencitos a este tipo de estadios, de coliseos; en uno como este mataron a Víctor Jara. Así parecido a esto, más frío, más gris, más viejo, mataron a Víctor Jara, en Santiago de Chile; este sitio hay que redignificarlo.
+
+El derecho a la protesta es un derecho democrático, el derecho a expresarse, a movilizarse, es un derecho democrático. Los gobiernos que ordenan a su policía matar, encarcelar, torturar y detener jóvenes no son gobiernos democráticos y este es el Gobierno del cambio. Este lugar, donde el miedo cundió y se llenó el espacio del temor debe ser redignificado.
+
+Aquí anuncio que centenares de jóvenes detenidos por participar en protesta serán declarados gestores de paz antes de Nochebuena en Colombia. Este Gobierno no colinda con líderes juveniles, sociales y activistas que, simplemente se expresaban, manteniéndolos presos en las cárceles de Colombia cuando tienen el derecho de pasar Navidad con sus familias.
+
+Les agradezco su atención.
+
+Muchas gracias, gracias.
