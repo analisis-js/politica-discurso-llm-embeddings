@@ -1,0 +1,386 @@
+https://www.presidencia.gov.co/prensa/Paginas/Alocucion-del-presidente-Gustavo-Petro-Urrego-sobre-los-avances-del-Gobierno-del-Cambio-en-educacion-250902.aspx; https://youtu.be/tNP0EFB5mgE
+
+Alocución del presidente Gustavo Petro Urrego sobre los avances del Gobierno del Cambio en educación
+
+Bogotá, 2 de septiembre de 2025
+
+Buenas noches, ciudadanas, ciudadanos que me ven y que están interesados en problemas cruciales del país y en tener información buena que no consiste en que sea la de uno necesariamente, sino que se tengan los puntos de vista y usted pueda analizarlos, dado que, como lo digo siempre en estas interlocuciones, tenemos una prensa tradicional dedicada exclusivamente a la calumnia.
+
+Y en esa manera, y en esa medida, es necesario que usted tenga otra información basada en los datos, en los hechos.
+
+En la pasada alocución hablamos de salud. El mensaje central de los datos, de lo cual no habló la prensa tradicional, es que tenemos una mejoría sustancial en los indicadores que se usan internacionalmente para comparar los sistemas de salud, tanto en el tiempo como entre países.
+
+De eso no dijeron ni mu, y resulta que todos los indicadores que presenté muestran una tendencia de mejoramiento y, en ciertos casos, sustancial, como los temas de mortalidad infantil por hambre, regionales, nacionales, el milagro de La Guajira.
+
+Me acaba de regalar una parlamentaria, cuyo nombre no quiero recordar aquí, un cuadro con un insulto, diciendo que el cuadro es para que recuerde los niños muertos en La Guajira.
+
+Pues esta vez, a diferencia de los gobiernos que ella apoyó, tenemos la mitad de muertos y ojalá lleguemos a cero, que es el objetivo.
+
+Se nos hizo una crítica de tipo matemático, de tipo técnico, y quizás la mayor, la de la sociedad epidemiológica, que yo debo responder por la seriedad de las asociaciones científicas. Me interesa ese tipo de debate.
+
+A veces se aburren porque creen que soy científico y, digamos que, en mi lucha política he tratado de usar la ciencia como base de la política, porque esa es la definición de progresismo. Un proyecto político que abandona la ciencia, que la oculta, que no la mira, que no la estudia, no es progresismo y va contra, muchas veces, de la vida de la humanidad entera, como estamos observando ahora.
+
+Pues bien, la crítica que se nos hace es que pusimos al mismo tiempo datos de casos con datos de razones, que son relativamente porcentajes ponderados.
+
+Ambas sirven, y fui muy claro en decir cuándo se trata de unas, cuándo se trata de otras.
+
+Muestran cosas diferentes. En el tema de casos, por ejemplo, de mujeres que ya no mueren en sus embarazos, son casos y, claro, disminuyen en la medida también de que disminuye el número de niños que se tienen, como viene ocurriendo en una transición demográfica mundial, preocupante en cierta forma.
+
+No discutiré ya las consecuencias de eso. Un llamado a una muerte generalizada, que es lo de la época que vivimos de crisis climática, de falta de esperanza y la necesidad de una expansión de la vida, que ya no tendría lugar si no hay un cambio tecnológico radical de las formas de producción, de las formas de relacionarse entre los seres humanos y de las tecnologías que se usan. Entre otras, pasar de la energía fósil a la energía limpia, tema que está en la reforma tributaria que presentamos.
+
+Eso indudablemente es cierto. Entonces, los casos disminuyen no solo por un mejoramiento del sistema de salud, sino por una perspectiva diferente de la vida, pero junto a la razón que es la que ya incluye ese tema de la baja de tasa demográfica en la niñez, pues no se equilibra las dos cifras, porque es importante mirar en casos, ni más ni menos, porque se trata de número de vidas humanas y eso es lo principal.
+
+Y en el otro caso, acondicionarla con los cambios de la tasa demográfica, siempre con el indicador de por 100 mil, por ejemplo, de niños nacidos vivos, que nos hace a ese acople, que, también, como vieron, y lo dije, mejora sustancialmente en este Gobierno las razones, los porcentajes.
+
+Y en esa medida, las dos cifras son buenas, lo cual significa que la conclusión debió ser: evidentemente, tenemos un mejoramiento del sistema de salud y se produce por un cambio de modelo y también por un cambio demográfico.
+
+Es decir, en el sistema de modelo que estamos irradiando, que podría ser mejor si se aprobara la ley, porque hay cosas que no podemos hacer sin el cambio de la ley, como eliminar completamente la intermediación financiera, que le hizo, desde hace 10 años que la introdujeron, un enorme daño a la salud y la vida de los colombianos, porque cambiaron vida por codicia.
+
+No voy a auscultar aquí, porque vamos a hablar de otro tema, pero quería defenderme de la crítica, porque es injusta en la mayor parte. Si hubo problemas matemáticos de quienes hicieron los cuadros fueron mínimos y no contradicen lo que acabo de decir.
+
+Ahora, la Asociación Epidemiológica debería tener dos temas en su concepción científica: uno, qué hacer en tiempos de epidemia, que no estamos hoy, los tuvimos. Y dos, cómo prevenir las epidemias. Y aquí hubo un olvido gravísimo, en mi opinión, porque precisamente lo que arrojan los números es que presenté es como un sistema preventivo que estamos irradiando en todo el país.
+
+Ya tenemos la tercera parte, pero la tercera parte del país más pobre. Con lo cual, presentamos los resultados de disminución sustancial de la muerte, tanto en razones como en casos. Ese resultado tiene que ver con el principio epidemiológico fundamental, y que una epidemia se puede detener con la prevención.
+
+Pongo un ejemplo para que Colombia se sienta orgullosa, muchas veces baja la cabeza ante el extranjero, eso nunca debe ocurrir, y es que la peste europea que pululaba en la Edad Media hasta 1492, disminuyó sustancialmente, y con eso se salvaron la vida de millones de europeos, diría, se salvó Europa, gracias al algodón americano, parte del cual estaba en el actual territorio de Colombia.
+
+Fueron los indígenas de la Sierra Nevada de Santa Marta, que vivían abajo junto al mar, que desarrollaron una guerra de 100 años contra la invasión española. No festejaron los 500 años de esa resistencia, sino la entrada de la Cruz de Bastidas, que era una cruz invertida, porque vino a matar indígenas y a quitarles la tierra.
+
+Y esa guerra duró un siglo, hasta que descuartizaron 72 caciques indígenas con caballos, a los cuales, los caballos, los indígenas, le tuvieron muchísimo temor. Dejó ahí.
+
+Educación
+Vamos entonces con educación:
+
+Vamos a hablar de las pruebas Saber, criticables, desde hace tiempo, ahora expresaré mis ideas al respecto, pero vamos a ver los datos y en lo que pueden trasladar las pruebas Saber sobre calidad educativa, sobre avance o retroceso.
+
+En la prensa volví a leer, por eso quise hacer este programa, que vamos mal, dijeron, que resultados mediocres y, efectivamente, como he criticado en mis discursos, los promedios de educación de Colombia son de los peores del mundo, sobre todo en matemáticas. Medido por competencias –y yo me he afanado en que podamos hacer algo diferente–, lo probamos en Bogotá, en la práctica.
+
+Y hoy, aún las pruebas Saber, vamos a ver las últimas, muestran a Bogotá como cercana al promedio (Organización para la Cooperación y el Desarrollo Económico) OCDE, lo que significa que, entre educación pública y privada, la juventud y la niñez bogotana obtiene una educación similar al del promedio del joven y del niño europeo.
+
+¿Quién produjo eso? Contundentemente, en los datos está, no lo muestra la prensa, porque no les gusta, Bogotá Humana.
+
+Y muchas de las cosas que hicimos en Bogotá Humana la tratamos, es más difícil, más complejo, reproducir en la nación colombiana. Con esa experiencia y algunas cosas nuevas. Así que vamos a ver, entonces, los datos para ver si hemos tenido éxito o no.
+
+Vamos a comenzar por este cuadro: lo inicio, vamos a mirarlo aquí, este cuadro es, mejora el desempeño en la educación, aumento de 3,6 puntos en las Pruebas Saber 11 y suma lo público y lo privado. Y estos son los datos a través del tiempo.
+
+Una de las críticas que se me hizo, y es razonable, es que partimos de este año que es el año del covid en muchos cuadros y para tener una visión completa, porque el año del covid impactó para mal en la salud, obviamente, y tiene un resultado ambiguo en la educación, entonces, colocamos dos años antes para ver las magnitudes del presente respecto a lo que era Colombia antes del covid.
+
+Aquí ustedes ven un resaltado interesante. Esto es el puntaje total, promedio, en las Pruebas Saber, de buenos y malos estudiantes.
+
+A veces no hay malos estudiantes, sino que no los ponen a hacer lo que saben y quieren hacer y este es un problema de estas pruebas, los marca todos por igual y resulta que el ser humano no es igual desde el punto de vista de sus sentimientos. Debe ser igual ante la ley, ante las oportunidades, pero se debe tener siempre en cuenta que el ser humano tiene huella digital y no se repite como no se repite la voz, como no se repite la persona y eso hace que cada persona dentro de la humanidad sea un ser diferente en sus formas de sentir y de pensar.
+
+Entonces, aquí qué nos dice este cuadro que, indudablemente, en el contexto del tiempo, aquí marcamos una inflexión apenas el 2022 que compartimos entre (el presidente Iván) Duque y mi Gobierno alcanzó… No alcanzó siquiera el punto más alto que teníamos en el 2018.
+
+Es el Gobierno Petro el que marca la diferencia. De esto no se habla, pero esto es interesantísimo porque no es por el golpe 2020 que aquí no lo fue tanto, ¿por qué? porque las pruebas fueron más fáciles en el año covid.
+
+Precisamente, entendiendo la situación que vivía de encierro el joven, el niño, los padres, los problemas de violencia intrafamiliar, que en muchos hogares ocurrieron, el problema psicológico de vivir encerrado.
+
+Un ser humano no debe vivir encerrado nunca. Ese es el problema que tengo con la cárcel, a mí me pusieron preso año y medio y otros muchos, mi discusión es que la cárcel no debe ser un sitio de pérdida de libertad y de degradación humana, sino que tiene que ser una universidad para que la mente pueda libre volar por el pensamiento y tendríamos menos criminales. La libertad, la falta de libertad lleva al crimen.
+
+Aquí como vemos, el año covid superó el año inmediatamente anterior. Y después, por una facilidad en hacer las Pruebas Saber, pero aquí ya vemos cómo el país superó y cómo, en mi Gobierno ha superado sustancialmente, no mediocremente, estos puntos que parecieran pocos: dos, tres.
+
+Resulta que es un promedio de todos los estudiantes, lo cual significa un elevamiento del intelecto general de la sociedad que es el camino hacia ser una sociedad del conocimiento, que es la única manera en que podremos superar los actuales problemas de exterminio de la humanidad y conquistar una nueva sociedad en donde la interacción de los cerebros y de los corazones permita superar la codicia y la sociedad de la codicia nos está hundiendo en el infierno.
+
+La vida, la sociedad de la vida, aquí vamos en camino y este es uno de los grandes éxitos de la Colombia Humana, del Gobierno del Cambio, lo dijimos en campaña, lo estamos cumpliendo.
+
+Ahora auscultemos cómo, porqué, cómo es que se logró este gran salto que debe ser mayor.
+
+Ojalá no nos devolvamos, ojalá la sociedad colombiana no se le ocurra volver atrás, porque nos hundirán en la ignorancia. Como sucedió aquí, no, el futuro de Colombia es el corazón y el cerebro y, por tanto, el recurso público debe ir, fundamentalmente, a cultivar el corazón y a cultivar el cerebro, una sociedad inteligente y no ignorante.
+
+Sigamos con el otro cuadro. Esto es colegios públicos, educación pública media, primaria también, pero exclusivamente pública en el país. Para ver, entonces, si es que esos promedios suben, porque la educación privada fue mejor y la pública cayó como venía sucediendo en las pasadas décadas.
+
+Un prurito programático, absolutamente bestial de algunos líderes políticos en Colombia que decidieron matar la educación pública para ver si se privatizaba creyendo que la educación privada es mejor que la pública y acabaron con la educación pública.
+
+La educación de mi colegio, que dio un premio Nobel de Literatura, Gabriel García Márquez, y como tres o cuatro presidentes –entre los cuales estoy yo– era un colegio público, es un colegio público, pero se deterioró en estos años.
+
+La educación pública también ascendió y sustancialmente. Sucede lo mismo con el mismo cuadro, es un poco menor que el promedio de educación privada, pero en este Gobierno dimos un salto sustancial creciendo a 2,46, 2,48 el puntaje promedio.
+
+Luego aquí, con el presupuesto que va es a la educación pública no queremos subsidiar negocios, entonces no todo lo privado es negocio, aclaro, pero sí la mayor parte. Por eso se mueren niñitas. Todavía no sabemos bien por qué, en colegios privados, y violan, porque allí no hay una mentalidad de función social, sino un negocio.
+
+En muchos colegios privados existe la función social. Entonces no los podemos criticar a todos como si fueran lo mismo, pero sí tener mucho cuidado, el Ministerio de Educación, porque debe hacer la investigación del jardín, ese de educación especial en y otros, porque esa niñita murió fue ahí. Parece en el colegio, y eso significa codicia en cambio de vida.
+
+Bien, tenemos este salto, es 4,8 puntos el promedio, acuérdense que en el pasado que es educación pública y educación privada, era 3,6 lo que saltamos en mi gobierno, aquí es 4,8. ¿Qué significa eso? Que donde hicimos el esfuerzo fue aún mejor, un salto en calidad en el promedio de la educación pública de primaria y secundaria en toda Colombia, un éxito del Gobierno del Cambio, nos da la razón en que lo que tenemos es que fortalecer la educación pública de Colombia.
+
+El gobierno Duque, que anda hablando y abrazándose con los genocidas del mundo, que matan niños, aquí se entiende por qué, también una forma de matar es quitarle la educación a la niñez, porque le mata su vida futura, y el balance Duque es que cayó el promedio de la calidad de la educación pública menos 1,8. Nosotros la subimos 4,8.
+
+Ojalá no venga un gobierno que baje, sino que siga subiendo. ¡Ojo con eso!, porque son sus hijos, los llena la prensa de odio para que este gobierno no siga, porque la prensa es de los grandes ricos de Colombia. Ellos no educan sus hijos en los colegios públicos de Colombia, los educan en Harvard, allá en el Rey, no me acuerdo cómo se llama, en París o en los colegios del Rey, de la Reina, en Inglaterra, porque se creen ingleses, se creen gringos y nosotros somos los que nos quedamos aquí.
+
+Entonces, aquí es que tenemos que hacer el esfuerzo para que nuestros colegios sean como los colegios del Rey, de Inglaterra o de Francia, o que son republicanos, o los de los Estados Unidos que son exclusivamente para ricos y blancos, porque ya no permiten entrar a latinos en esos colegios.
+
+Aquí tenemos las barras y los porcentajes, ojo, me volverán a hacer la crítica, pero esta diferencia de las barras que lo que miden es la disminución de la brecha entre colegios públicos. Aquí estamos hablando de colegios públicos y privados.
+
+Disminuimos la brecha. Este es un asunto fundamental para la igualdad social, porque si los niños de los colegios privados aprenden más que los de los colegios públicos, y a los colegios privados van niños con mejor capacidad de pago de sus familias, que, a los colegios públicos, que son gratuitos y van personas que no pueden pagar un colegio privado, entonces disminuir esa brecha es una conquista de la igualdad social.
+
+Y aquí estamos viendo las brechas. La roja, en este caso, colegios medio y primaria, la educación pública está abajo de la privada. Eso significa desigualdad social en Colombia. Eso significa que los niños, dependiendo de qué colegio van, salen ya desiguales socialmente en el país sin que tengan la culpa, solo por un sistema educativo perverso, porque los gobernantes anteriores decidieron matar la calidad de la educación pública.
+
+Como en mi colegio, por ejemplo, el de La Salle en Zipaquirá, y entonces le quitaron presupuestos, metieron más estudiantes por maestro, sobreexplotaron a los maestros.
+
+Ahora le echan la culpa a la Federación Colombiana de Educadores (Fecode). Que Fecode ni que ocho cuartos, si es que trataron a los profesores como si fueran esclavos, porque eran empleados públicos, y este fue el efecto. Entonces, fíjense en cómo la línea roja de calidad a través de las Pruebas Saber se desploma ni siquiera se mantiene, se mantiene a la caída, pasó de 245 en 2018 y ya iba en 239 en 2021, que no fue el año covid, el año covid dio un respirito, ya les expliqué por qué.
+
+Mientras la educación privada, a diferencia del 2019, tiene un crecimiento en los años de los gobiernos anteriores, y van ampliando la brecha de la desigualdad social, desde la niñez misma, desde el bebé, prácticamente. País desigual de los más desiguales socialmente del mundo.
+
+La India tiene una sociedad de castas casi infranqueables, pero es menos desigual que Colombia. O sea, que la desigualdad de Colombia, a través de los llamados estratos, que no son estratos, es peor que la desigualdad de castas de la India, y estamos en el curubito de los países desiguales del mundo, nosotros hasta ahora estamos tirando para abajo, y esta es una de las razones.
+
+La tierra fértil es otra de las razones. Aquí operamos para la educación. ¿Qué pasó en nuestro Gobierno? Que la educación privada sube de calidad, no nos estamos tirando la educación privada, no es una venganza, sube bien, incluso más que los gobiernos anteriores.
+
+La educación pública, perdón, sube excepcionalmente respecto a los gobiernos anteriores, pero la universidad privada, la educación privada que sube, solo tuvimos un problema en el 2024, ya lo explico por qué.
+
+Entonces, se cierra la brecha de la desigualdad y se cierra más o menos, en 27 puntos, que es este número acá, que es por eso es que metemos las barras, fue mayor el cierre en el 23, 30 puntos, y aquí fueron, fue al revés, están azul, aquí disminuimos solamente en todo este periodo del 2018 hasta 2024.
+
+Ya presentaremos las cifras del 2025, ojalá sean mejores, solo dos años, el Gobierno del Cambio, exclusivamente, en la historia reciente de Colombia redujo la desigualdad entre la educación pública y la educación privada en colegios de todo el país, y en favor de la educación pública, sin deteriorar la educación privada, sin deteriorarla.
+
+Entonces vamos al siguiente cuadro, que es, aumenta el puntaje en todas las Pruebas Saber. Esto ya es, metiéndonos a la competencia, competencia que es, en cierta forma, una competencia entre niños y jóvenes, mal. Problema estructural de la educación colombiana.
+
+Por eso, es muy difícil que dos mujeres, dos hombres, o mezclados, trabajen en equipo en Colombia. Problema de la sociedad colombiana, el que está un poquito abajo trata de tirarle los pantalones al que está un poquito arriba, en vez de colgarse para subir.
+
+Para subir hay que trabajar en equipo, hay que poner en conexión los cerebros, un solo cerebro no soluciona los problemas en ninguna parte del mundo. No hay (Isaac) Newton, como nos lo enseñaron. Para que Newton supiera la Ley de la Gravedad en física, no fue que le cayó una manzana, sino que aprendió de las matemáticas de los árabes, siendo europeo, y esas matemáticas se juntaron con las matemáticas de otros pueblos, y los colombianos heredamos matemáticas de las grandes civilizaciones indígenas que estaban por encima de la matemática europea.
+
+Fallamos en creer en neoliberales, individualistas, no es cierto. No somos caballos que compiten, los caballos no compiten, son los seres humanos los que lo hacen competir. El caballo cuida siempre dentro de la manada, el que las yeguas y los potrancos no se vayan por el abismo.
+
+El ser humano es una manada y necesita de guías que le impidan irse por el abismo e indudablemente Colombia se estaba yendo por el abismo. Y aquí tenemos que decir que el sistema educativo no nos ayuda y le pido al ministro de Educación (Daniel Rojas), que está aquí presente, ha logrado estos éxitos, difíciles.
+
+Pero le pido que este año que nos queda, que ojalá no sea el último, no porque yo siga, sino porque siga el proyecto, empecemos a cambiar ya los contenidos de la educación, que las Pruebas Saber no lo muestran, porque las Pruebas Saber fueron hechas para que los estudiantes aprendan de memoria, y la memoria siempre se pierde si uno no la está entrenando todo el tiempo, y entonces es una educación que falla cuando se hace por memoria.
+
+Esta memoria, a veces, la dividen, precisamente, para garantizar más eficiencia viendo al estudiante como un obrero futuro o una obrera futura. Y, entonces, nos lo dividen en competencias: ciencias naturales, matemáticas, sociales y ciudadanas, lectura crítica, inglés y otros.
+
+Es decir, nos especializan para que seamos ya algo muy especializado en un cierto tema, pero olvidando la universalidad del pensamiento humano, olvidando que, perfectamente, una disciplina mental se pierde si conocemos otros hechos que nos permiten revolucionarla, porque la educación lo que debe permitir es crear, innovar y criticar lo existente.
+
+Saber pensar no es saber de memoria, sino saber pensar para crear, que es lo propiamente que hacen los seres humanos. Sin embargo, en este cuadro ustedes pueden ver cómo en cada competencia el Gobierno del Cambio, porque esto va por gobierno, ¿cierto? Como es, los años, no va por años, 2018, 2022, 2024, saltamos hacia el último medible y en todas las competencias.
+
+La barrita roja está por encima en colegios, y la barrita roja es un promedio de la educación pública y privada en colegios por competencias, y el aumento de la calidad educativa fue general en todas las competencias del saber establecidas en las Pruebas Saber que imitan las pruebas internacionales.
+
+Entonces, este es otro éxito. ¿De dónde sacó la prensa tradicional que vamos mal? mentirosos.
+
+Me toca salir por televisión cada rato a quitarles sus mentiras, y entre más mentiras digan más salgo por televisión, y cuando tengan razón, pues lo digo, porque no soy un dogmático fundamentalista, sino que quiero es que la sociedad colombiana progrese tal como lo prometimos en la campaña electoral.
+
+Siguiente cuadro. Esta es matemáticas en los colegios públicos. Es un tema que da dolor de cabeza, porque la tecnología moderna en el mundo se basa en las matemáticas.
+
+Las guerras modernas en el mundo se basan exclusivamente en matemáticas, se hacen desde computadores, muy cómodos en oficinas de Nueva York y de Washington, mientras las bombas caen en realidad sobre la cabeza de bebés en Gaza.
+
+Por eso prohibí las exportaciones de carbón a Israel, porque con ese carbón hacen bombas, y voy a ser más radical y lo voy anunciando. Está bloqueado el Consejo de Seguridad del que vamos a hacer parte en enero, Colombia, de Naciones Unidas.
+
+Cualquier idea de paz Estados Unidos la bloquea, terriblemente y es la mayor potencia militar del mundo, dicen.
+
+Entonces solo hay un camino, si se nos quiere respetar el derecho a la humanidad de exigir que se acabe el genocidio en Israel, que el señor Duque aplaude, porque ya está acostumbrado al genocidio en Colombia. Y la manera es que Naciones Unidas en Asamblea, por mayoría, vote la constitución de una fuerza armada de paz que entre a Palestina y en donde Colombia debe participar.
+
+Y esa propuesta la llevaremos como Colombia, el país de Bolívar, al seno de la Asamblea de las Naciones Unidas. Si no, no nos van a respetar y seguirán matando niños y niñas en Gaza hasta exterminarlos y la humanidad no puede dejar que exista un genocidio, porque las bombas que caen en Gaza también caerán en Bogotá y en Caracas y en Quito y en Buenos Aires, a pesar de lo que piensan cada uno de sus presidentes y en el África, etcétera, porque hoy la guerra matemática que se abre es contra los pueblos que no somos ricos en el mundo, que no compramos suficiente y que somos rebeldes en el sentido de que queremos una humanidad en paz y llena de vida.
+
+Es una guerra de los petroleros contra los pueblos del mundo. Es una guerra de la codicia contra la vida y la vida tiene que ganar por todos los medios posibles.
+
+Explico el cuadro. Este no lo conocía mucho. Estos son los niveles. Nivel 1, nivel 2, nivel 3, nivel 4, año 2018, año 2022, año 2024. Los niveles van de peor a mejor. Las peores calificaciones se dividen en cuatro grupos. Las peores calificaciones, las menos peores, las que mejoran y las mejores.
+
+Entonces, ¿qué es lo que nos indica este cuadro? Ojo, poniendo en la barra roja mi Gobierno, esto va por gobiernos: gobierno Duque, Gobierno Petro y gobierno antes de Duque, el último de (Juan Manuel) Santos, que no hizo, bueno, hizo un esfuerzo importante en matemáticas, hay que decirlo.
+
+Entonces, gobierno, el peor nivel de las calificaciones, nosotros disminuimos las peores calificaciones, más que Duque, que las subió, las peores calificaciones y más que Santos, que es el referente primero que pusimos. O sea, hay en este perfil un mejoramiento porque logramos disminuir el número de estudiantes, en promedio de estudiantes con peores calificaciones.
+
+Esto va por números, va por número de personas, ¿cierto?, porcentaje. Sí, acá están los números ya que corresponden. Este es el nivel 2, nivel 2, un poco menos peor, pero peor.
+
+Y nos da el mismo fenómeno, disminuimos en el Gobierno Petro y en gran volumen esto que podríamos llamar los estudiantes mediocres, por poner esa frase que no me gusta, porque yo sé que muchos estudiantes que aquí no les va bien, les va bien en poesía y en pintura o en deportes y, entonces, es una manera mala de calificar que yo quiero que se cambie.
+
+Ya no es fácil, porque esto lleva muchos años y hay que hacer es un tránsito hacia las capacidades del ser humano, pero también hacia su capacidad de comprender el universo. Tiene que pensar en las estrellas. Ad astra, me dicen loco, ad astra es la frase latina que es consigna de nuestra Fuerza Aeroespacial, que es entre las estrellas. Ad astra, a pesar de las asperezas entre las estrellas. Y la educación universal es la que permite eso, mirar las estrellas de cerca.
+
+Entonces aquí nos da el mismo perfil, nos va muy bien, bajamos los promedios de estudiantes que va a un peor o casi peor. Y en cambio en los mejores niveles, que es el nivel 3 y el nivel 4, la barrita roja está por arriba. Nivel 3 que es, llamémoslo mejor, aumenta 1.2 y ¡ojo con esto!, nivel 4 que es el máximo, miren ustedes, muy poquitos estudiantes, que es lo que mide el que tenemos una de las educaciones más malas del mundo.
+
+Prácticamente, casi no habría estudiantes en el nivel superior, alto desempeño, le dicen. En Santos, nada ahí, aumenta un poquito Duque. Y nosotros casi que duplicamos esta barra, esto debe crecer mucho, 2,3 puntos.
+
+Y entonces la pregunta es: ¿Por qué dice la prensa tradicional que esto es mediocre? ¿Por qué no lo publica? ¿Por qué nunca jamás publicó las Pruebas Saber de Bogotá, que mostrarían al país y a Bogotá, que nunca lo conoció? Porque ahí salía la señora (Claudia) Gurisatti todo el tiempo diciendo, cero colegios públicos, haciéndole caso a un ignorante concejal uribista, no me acuerdo el nombre, se nos olvidó hasta el nombre, pero que venía diciendo que hicimos cero colegios en Bogotá.
+
+Señores, hicimos 45 sedes nuevas. La Gurisatti le caía en la trampa por ignorancia al concejal uribista, porque es que no es lo mismo un colegio que una sede.
+
+Colegio es una institución jurídica, se puede crear sin colegio. En cambio, y no estábamos interesados en aumentar instituciones jurídicas, más rectores, sino sedes, más profesores, más horas de estudio, mejor calidad en donde se estudia, así el nombre del colegio sea el mismo. Y entonces ahí sí no contaban y no se dieron cuenta que inauguramos 23 sedes en mi Alcaldía y dejamos en construcción hasta 45 sedes, que (exalcalde de Bogotá, Enrique) Peñalosa inauguró sin decir jamás que eran financiadas por el Gobierno Petro.
+
+Así es la trampa en la política. Y se borró completamente el salto educativo que Bogotá Humana dio en la ciudad de Bogotá y que se expresa en las Pruebas Saber que nunca han publicado, aunque sí las tienen. Yo sí los retaría que mostraran, mostrando el promedio OCDE, mostrando el promedio nacional y mostrando el promedio Bogotá público y privado, qué pasó entre los años 2012 y 2015 respecto a esas pruebas.
+
+Lástima que usted no me trajera el cuadro, que ojalá se pudiera presentar porque ese cuadro lo tiene el (Departamento Administrativo Nacional de Estadística) DANE y muestra claramente que el salto en calidad educativa de Bogotá se dio entre el 2012 y el 2015.
+
+Aquí entonces, algo parecido, no tan rápido, es más complejo en Colombia, pasamos por rectores que dependen es del municipio no del país. Y este es un problema que discutir, que es de competencias, porque aquí que nos está pasando que se están robando la plata en algunos departamentos, que el esfuerzo, no en todos, porque hay gobernadores y gobernadoras que saben qué significa esto para la niñez y la juventud de su departamento, pero hay otros que son terribles.
+
+En el Tolima, el dinero que entregamos del (Programa de Alimentación Educativa) PAE no llega a los niños. Creo que pasa lo mismo en otros departamentos, en Valle del Cauca, ojo, y en otros, se puede mirar claramente, ese es otro cuadro que debimos presentar. Pero es un crimen.
+
+¿Cómo así que el Gobierno da la plata y no se vuelve comida? Entonces, ¿a dónde se va la plata? A comprar votos, los verdugos de los hijos, que los dejan sin comida. Y si hay padres de familia que un poco tontamente votan por los tipos y tipas que van a dejar sin comida a sus propios hijos en el colegio. Esto lo veremos en un cuadro que tiene que ver con la permanencia en el colegio.
+
+Mejoran las pruebas de lectura crítica. Este ya es otra competencia por lectura. Pasa lo mismo, no me voy a, este es Duque, este es Santos, este es Petro. Duque hizo crecer la ignorancia en la lectura. Si el ser humano no sabe leer, ¿qué le espera? Nosotros volvimos a bajar, pero aún no tenemos el nivel de Santos. Y aquí estamos quedados, en lo promedio. Bajamos respecto a Duque.
+
+Más, estos son los peores estudiantes. Aquí, poquito, pero también, peores. Aquí fue sustancial la caída y muchísimo más que con Santos.
+
+Aquí al caer, entonces, estamos sacando estudiantes de la pobreza y de la nueva ignorancia que consiste en no saber leer, porque se mira tanto televisión y monitos y tantas vainas del celular que no se lee, se ve. Y produce una desgracia que es una nueva ignorancia, nuevo analfabetismo que aquí estamos tumbando con éxito, en el gobierno Petro.
+
+Por tanto, los mejores estudiantes, nivel 3, mire, crece 3,6 puntos, le ganamos a Duque que los bajó; le ganamos a Santos y, en el mejor, más alto desempeño, lo mismo. Le ganamos a Santos, le ganamos a Duque, le ganamos, y estamos ya en 10,3, subió un punto. Luego, este cuadro, ¿qué significa? Que nosotros bajamos los peores y subimos los mejores. Luego, la sociedad colombiana tiene hoy un promedio de alfabetismo en lectura mayor. Lo cual, a mí me parece fundamental.
+
+Saber leer, otra vez el problema. ¿Saben leer por mecánica o saben comprender la lectura? Porque hay mucho colombiano que les oye a los periodistas que saben menos de esto, y terminan empobreciendo su crítica política, y entonces terminan aplaudiendo al que mata a miles de jóvenes, que son los hijos de los votantes.
+
+Seguimos. Mejoran las pruebas de inglés. Voy a hacerlo rápido. Otra vez, inglés, lo peor en Colombia. Dicen que es que yo no, a mí no me gusta el inglés, porque soy antiimperialista, dicen. El inglés no tiene que ver con el imperialismo, tiene que ver más el español con el imperialismo. Pero los datos dan lo contrario de lo que dicen.
+
+Ahora, no me gusta el inglés como idioma oficial, que es diferente, porque pusieron un referente que hacer del inglés el idioma oficial en los colegios. Nosotros somos colombianos, no somos gringos ni aristócratas ingleses. Aprender inglés por capacidad, pero no sustituir al español.
+
+Lo que tenemos es que saber inglés, saber chino, saber francés. Mis hijos saben más idiomas que yo. Yo medio leo el francés, el inglés también lo sé leer, no crean, pero se me ha olvidado un poco por estar de presidente de la República. Pero el español no puede olvidarse, como no podemos olvidar las lenguas indígenas que hay en Colombia, que tienen más derecho a ser idioma oficial que el inglés. Entonces aquí aprendemos inglés para entendernos con el mundo, porque así es.
+
+Y bajamos los peores, 4,8 puntos, que son los mayores, el mayor número en Colombia es personas que no saben inglés, es decir, como yo. Y eso se los digo por mi propia vida, porque me encantaría en un discurso internacional hacer un buen discurso en inglés, y no puedo.
+
+Entonces esto hay que disminuirlo, pero fíjense que, de aquí para adelante, incluido este nivel, empezamos a subir, a subir, a subir, y a subir hasta ahora, miren que poquitos saben inglés.
+
+Pero es en el Gobierno nuestro en donde más sube, sobre todo aquí, 1 y 3 puntos, y aquí, y disminuimos acá, que es lo peor. Mejoramiento del perfil de inglés en Colombia, que no está mal, porque hay que entendernos con el mundo, y hay que hablar otros idiomas para entendernos con el mundo, aunque ahora inventaron un aparatico que traduce automáticamente.
+
+Mejora el promedio departamental, este cuadro es hermosísimo, porque este es un cuadro que tiene que ver con la igualdad social vista territorialmente, entre departamentos. Mire este perfil, estos ciclos, círculos negros, es que están por debajo de la línea de promedio, esta es una línea de promedio, y hay unos poquitos círculos verdes que están por encima.
+
+¿Qué significa esto? Que la mayoría de las regiones, porque cuando vamos a estos números, que es 47, entonces 47, Magdalena, estaba bien sobre el promedio, Magdalena sorprende en la educación, tiene un cariz político, ¿no?
+
+O sea, ¿quiénes manejaron la educación en el Magdalena? Pues lo han manejado bien, el 20, nos vamos a, 20, César también está bien; 76 que es Valle del Cauca, que está medio bien, queda este en el promedio, 25 y 63, 25 es Cundinamarca, colegios de Chía, de Zipa, de Cajicá, que son relativamente bogotanos, porque van en bus a estudiar, han logrado atraer también la educación local y eso está bien, y 63 es Quindío, que es el mejor, ¿cierto?
+
+Córdoba, no está, ah no, está ya en el segundo, ahora hablamos, 63 es Quindío, que es el mejor aquí, en este perfil, ¿dónde estará Bogotá? ¿Dónde? No veo a Bogotá, es el peor, no, no la veo ahí en el cuadro, ah sí, Bogotá, del promedio hacia abajo, interesante ver esos números en concretos en pruebas Saber, porque esto ya son años 18, 22, es una duda que yo tengo, pero no he podido verla en los cuadros, los gobiernos peñalosistas que siguieron a Bogotá Humana, ¿acabaron el esfuerzo o lo mantuvieron?
+
+A Peñalosa, yo lo critico mucho porque tiene una visión de ciudad depredadora, antihumana, pero él insiste en el tema educativo privatizando, y lo que siguió, ¿por qué yo me separé Claudia López? Ella no aceptó el que fortaleciéramos la educación pública, sobre todo superior en Bogotá, y yo veo a (Carlos Fernando) Galán en lo mismo, rechaza los planes de hacer sedes de universidad pública en Bogotá, y este cuadro negro que ya tiene Bogotá para los años 18 y 22, podría estar significando que el esfuerzo que hizo Bogotá Humana, se lo tiraron, y es dramático porque si es así, el electorado bogotano cometió un suicidio, en Metro y en educación, pero ya veré en los cuadros, se los pido.
+
+Ahora, ¿qué pasó en nuestro gobierno?
+
+Este es el gobierno, no hay un solo cuadro oscuro, un círculo, así aquí 99-94 pequeño, que es todavía, ojo, Vichada y Guainía, no porque estén lejos de Bogotá, esos antiguos territorios, hoy departamentos, deben no tener educación, porque esto se llama Amazonas, aún Vichada es Amazonas, que se lo quieren tirar es diferente, y las juventudes amazónicas pueden tener el mejor saber del mundo, si saben tener las piezas fundamentales del pensamiento, que construyan la bioeconomía, que será la cuarta rama de riqueza del mundo, una rama ligada a la vida y no al petróleo, ojo.
+
+Entonces aquí me desaparecen estos cuadritos, estos circulitos, pero esa es una orden, y aquí pues nos complacemos de que subimos prácticamente en todos los departamentos la calidad promedio que teníamos en el 2022, esta línea marca el año 2022, esta línea marcaba el año 2018, la pusimos más dura y, sin embargo, todos nuestros departamentos pasaron hacia arriba el promedio del 2022, todo esto es un éxito del Gobierno del Cambio, esto se llama cambio, dicen que no hicimos el cambio, este es el Cambio, que nuestra juventud y nuestra niñez saben más en todos los departamentos de Colombia, no solo en Bogotá.
+
+Aquí, Bogotá, cual era, 11 sigue colgada al promedio, pero arriba mejoró, y esto es fundamental, porque aquí está el mayor número de jóvenes y niños, entonces este es un éxito de la igualdad social, porque si la educación bogotana es buenísima, pero la de Córdoba malísima, mi departamento, pues entonces nos fregamos en Córdoba, terminamos en el mazacote de la violencia, y sirviéndole a los paracos como cierta clase política cordobesa lo hizo, y sobre todo social, la élite social de Córdoba se volvió paraca.
+
+Esto ya no va a volver a ocurrir más, porque esto significa, ¿dónde está Córdoba?, 23, mira casi, casi la mejor educación del país, o por lo menos la salida hacia arriba del promedio, Córdoba, esto lo hace Petro, que es cordobés, pero sobre todo los rectores de allá, los maestros, maestras, el esfuerzo institucional del Ministerio de Educación, abrir colegios nuevos, mejores, etcétera, entonces nuestra juventud cordobesa, como lo demostró el grupo del túnel de Cereté, y su líder que se suicidó de la tristeza al ver lo que pasaba en Córdoba, (Raúl) Gómez Jattin, pues mostró que había una enorme posibilidad de inteligencia cultural en el pueblo caribeño, por algo García Márquez, cuya familia es de Sucre, mostró esta capacidad enorme que el pueblo caribeño tiene, que fue embrutecido a la fuerza a partir de matar a estudiantes y profesores, y meternos en fosas comunes, después de torturarlos, porque era una juventud rebelde y los paracos acabaron con la juventud y la inteligencia de Córdoba y el Caribe.
+
+Mejora el nivel del desempeño global de los colegios. Caen los peores, esto también va de peor a mejores. En todos los colegios públicos, colegios públicos, caen los peores. Que son la mayoría.
+
+Así nos lo entregó, mire este año de Duque. Casi la mitad de los colegios son de los peores. Colegios públicos.
+
+Aquí caen sustancialmente 7 puntos. Entre los casi peores caen también 3 puntos. Y de aquí para allá, que ya es el mejoramiento, subimos en el grupo B, 5,2.
+
+Subimos en el grupo A, que ya son 5 grupos, casi de los mejores, 10, con 3,5 puntos. Y en los mejores, mejores de alto desempeño, que casi no existían en el gobierno Duque, colegios públicos, subimos 1,3. Luego la subida de aquí para allá de la educación pública en los colegios, volviendo los mejores, casi mejores, etc.
+
+Y la caída de los peores nos muestra un mejoramiento sustancial de la calidad educativa del colegio público. Seguimos. Esta tasa de deserción tiene que ver con la comida.
+
+Si en el colegio hay comida caliente, el estudiante, hombre o mujer, tiende a quedarse porque a veces en su casa no hay comida. Y es una forma de vencer la comida, un estudiante con hambre en el estómago no piensa, porque tiene que pensar primero en el hambre como cualquier especie animal. Luego comer es fundamental.
+
+Baja la deserción ​​​escolar
+Y entonces aquí tenemos, otra vez por años, ¿cierto? Esta es tasa de deserción. Solo empezamos a bajar, pero de un nivel alto en donde lo dejó Duque, la deserción. Quizás este es un problema covid, porque fíjense ustedes cómo en el año covid la deserción creció mucho respecto a los años anteriores.
+
+Pero a partir del último año Duque, el Gobierno del Cambio comenzó a bajar la deserción, aún está muy alta. Y aquí, este es el de las reprobaciones, es decir, el estudiante que no pasa, igual sucede lo mismo. Venía creciendo el estudiante que no pasa, este ya no es un problema covid.
+
+Llegó a este punto altísimo, 8,1 % y empezó un descenso que ya nos tiene en el 2024 en 6,8 %, aún muy alto. Reprobar y la deserción están ligados a la capacidad mental del joven y la joven. Y parte de la capacidad mental tiene que ver con el hambre.
+
+Luego la bajada es importante porque significa menos hambre en los colegios. Pero la subida a lo largo de los años anteriores tiene que ver con la corrupción. Se robaron la comida de los jóvenes y niños en los colegios.
+
+Por codicia, corrupción profunda en departamentos y municipios. El que nosotros la reduzcamos aun relativamente es porque pusimos más plata, dinero público en la comida, pero aún tenemos gobernadores y gobernadoras que se quedan con la plata, porque contratan en los colegios unas fundaciones que no tienen función social, sino ganas de quedarse con la plata que terminan trasladando a las campañas electorales y con la plata de la comida de los niños pobres compran el voto de los padres de los niños pobres.
+
+Y el padre y la madre hacen el peor negocio, porque se creen que se ganaron un billete el día de elección y votan es por el ladrón de la comida de sus hijos que a duras penas le pueden entregar trabajando.
+
+Entonces este es un tema fundamental en donde hemos mejorado, pero hay que apretar, Ministro de Educación, porque aquí tiene que haber auditoría. El que haga eso se va para la cárcel. Nosotros no entregamos plata para que en el Tolima se la roben.
+
+Recursos. El amor está en el presupuesto. ¿Todo esto cómo? Porque crecimos el presupuesto.
+
+Reforma t​​ributaria
+Y entonces aquí hay unos ricachones que no saben qué hacer con el dinero porque ni sus padres ni sus hijos, ni sus nietos se lo van a poder gastar. Que cogen El Tiempo, que cogen El Espectador a decir que qué terrible la reforma tributaria. Que ahora sí es a personas naturales.
+
+Pues sí es a personas naturales pero los que se llevan la plata a los paraísos fiscales, no al pobre trabajador. La secretaria de un banquero paga más impuestos que el banquero.
+
+Eso no puede ser así. Por eso la reforma tributaria que claro pueden decir que no la aprueban y meterán a Colombia en el abismo los que hagan eso. Pues no lo hacen es porque no quieren ponerle impuestos a los ricos. Una remesa al exterior no lo hace un pobre.
+
+La remesa del exterior a Colombia lo hace un pobre. Que ya le pusieron impuestos el señor (presidente de Estados Unidos, Donald) Trump. Cuando nosotros decimos impuestos a los vehículos de alta cilindraje le ponemos impuestos a la gasolina, sí.
+
+Pero el pobre no usa casi la gasolina. El que más usa gasolina es el de las cuatro puertas. ¿Le ponemos impuestos a la renta de la banca? Pues claro.
+
+Porque la utilidad de los banqueros es el producto del trabajo de los demás colombianos. ¿Le ponemos impuestos a la generadora eléctrica? Pues claro.
+
+Porque con las tarifas de energía eléctrica se están robando literalmente a toda la sociedad colombiana y el cambio de tarifa que hizo este gobierno solo va a operar a partir del 2027 y esperan elegir un gobernante del pasado vendido a las generadoras para cambiar la fórmula.
+
+Más presupuesto para l​​a educación
+Bueno, ¿para qué se usan los impuestos? Pues para elevar sustancialmente el gasto en educación y salud de la gente más pobre de Colombia. Esto se llama igualdad social. Y miren cómo la cifra de recursos para la educación preescolar básica y media aún no nos metemos en universidad, crecen en precios constantes.
+
+No en precios corrientes porque estaríamos midiendo la inflación, sino en precios constantes del 2025. Aquí ya metimos el presupuesto del 2025. Miren el enorme salto que dimos en el Gobierno del Cambio que nunca se había visto.
+
+Es por eso que estamos creciendo el intelecto general de la sociedad colombiana. Esto no se lo deben robar. Esto tiene que volverse calidad en la mente y en el espíritu de cada niño o niña o joven, hombre o mujer, los colegios públicos de Colombia porque el presupuesto público va para el colegio público.
+
+No más subsidios ser Pilo Paga. Las cifras nos demostraron que la plata que se gastaron para darles becas a 15.000 estudiantes, que termina siendo plata para la universidad de garaje o la universidad privada en general, era la misma que nos gastamos nosotros para darle 150.000 cupos 10 veces más a jóvenes en la universidad pública. Ahora vamos a ver las cifras, que es la educación superior, con esto termino.
+
+Esta es la Prueba Saber Pro, se llaman así, que es solo para educación superior. Aquí está por años, y aquí miren ustedes, por eso digo, se supone que el mejor año fue el año covid de Colombia, Duque. Está medida en esta forma para que ustedes vean cómo hay una tendencia de crecer en los gobiernos, excepto año covid.
+
+Y terminamos en el 2022 aquí, en el punto más bajo de estos años. Le pregunté qué pasó en el año covid para que haya este resultado excepcionalmente alto, y me dicen es que las pruebas Saber Pro eran fáciles, precisamente teniendo en cuenta que los jóvenes estaban, eran encerrados. Puede que hayan leído más, pero también puede que se les haya facilitado dadas las circunstancias, porque la tendencia en los años siguientes fue a caer, mientras que, en los años nuestros, del Gobierno Petro, sube la calidad en la educación superior pública.
+
+Pública y privada, este es un promedio, promedio de ambas. Aquí no logramos llegar a esos niveles de antes, pero vamos para allá. Hay que superar los niveles del gobierno de los años anteriores.
+
+Este es, ahora sí, públicas. Lo mismo, hay una caída en la pública desde niveles muy altos, y hay un ascenso en el gobierno nuestro que ya prácticamente empata de los gobiernos anteriores, excepto el año del covid. Hemos subido la calidad de la educación superior pública en Colombia.
+
+Ahora, ¿en qué magnitud comparada con la privada? Esto es excepcional, señores, pero no solo de nuestro Gobierno. Siempre, desde el 2018 para acá y quizás años anteriores, siempre la educación pública tiene más calidad en la universidad que la privada. ¡Ojo con las estafas! La pública es gratuita por nuestro Gobierno.
+
+Duque hizo algo ahí, pero miren este resultado. Estas barras miden la brecha de la pública sobre la privada, no al revés, ¡ojo! Y la brecha venía disminuyendo en los gobiernos anteriores, es decir, la educación privada estaba alcanzando la pública, se hacía más angosto, pero ahora se amplía. Creo que, en este último año, 2022, hubo un mejoramiento relativo.
+
+Aquí es evidente que la educación universitaria pública es cada vez más superior a la privada. ¿Qué significa esto? Que universidades como los Andes, la Javeriana, el Rosario, etc., las de caché, de donde salen los abogados que nos quitan los derechos, no todos, no hago esa crítica generalizada, siempre hay jóvenes que quieren leer cosas que le prohíben leer en la universidad. Aquí lo que tenemos es que hay un negocio en la privada.
+
+Es un negocio a partir de dinero público que han entregado a manos llenas hasta los alcaldes de Bogotá últimos, que cambiaron el nombre, pero es lo mismo, y unas fundaciones que son de universidades privadas que no enseñan. Entonces crean unos profesionales mediocres.
+
+190.000 cupos nu​evos
+Entonces aquí lo que hay es una enorme cantidad de universidades de garaje estafando a la juventud y a la familia colombiana. Porque si la familia colombiana tuviera cupos en la pública, pues se iba a la pública sin gastar un billete y logrando que su joven, hombre o mujer sepa y tenga oportunidades en la vida. No solo consiste en eso.
+
+Entonces aquí hay que desmadrar el negocio privado codicioso y hay que ampliar mucho más los cupos de la universidad pública en nuestro esfuerzo. Y esto tiene que ver con esto. Hemos creado 150.000 nuevos cupos. ¿Cuánto es? 190.000 nuevos cupos que la mala matemática de una parlamentaria quiso anular, pero no pudo porque son reales. Y nuestro objetivo para este año es que eso crezca a 500.000 cupos. Este año y el año entrante, cuando terminemos el Gobierno de tal manera que realmente podemos hablar de una sociedad del conocimiento.
+
+Estas son las pruebas Saber Pro en las universidades públicas por competencias. Lectura crítica, crítica, que es como tiene que ser siempre.
+
+Criticar lo que se lee, no comer entero porque muchas veces dicen mentiras o la ciencia misma avanza criticándose a sí misma. Entonces ya no es la matemática mecánica que aprendimos en el colegio. Es la matemática cuántica.
+
+Así digan que no exista, pero sí existe. Y acaba de haber un descubrimiento en Suiza, con el tubo ese grande que tienen, en donde logran comparar saltos cuánticos que son mínimos, mínimos, en protones del átomo, también en células. Eso dará mucho que hablar en el futuro, pero no nos metamos ahí.
+
+Todas las competencias de las universidades públicas crecieron. Lectura crítica, razonamiento cuantitativo no tanto, ojo, matemáticas.
+
+Y aquí sí la cuántica se nos va perdiendo. Yo he querido que aquí se haga un esfuerzo con las facultades de ciencias cuánticas de Magdalena, de Bogotá. Solo vi tres varas en Zipaquirá, solo hay tres varas. En Usme, que no hay ni una vara, siquiera, de construcción. En Bucaramanga y en Tunja, ojalá se pueda.
+
+Competencias ciudadanas, muy bien. Comunicación escrita, muy bien. Saber escribir. Seguimos. Este es el departamental, pero en universidades. Otra vez casi lo mismo que en colegios.
+
+Promedio, ¿cuál era? 2018, años anteriores a mi Gobierno, mejoraron algunas. Ahí no veo el 11, que es Bogotá. El 11 es Bogotá. Miren Bogotá, un desastre, casi que es la peor región en crecimiento de la calidad de la universidad, este es promedio, pública y privada.
+
+A Bogotá la llenaron de universidades de garaje y ahí están estudiando los jóvenes y esto no debió ser, señor Galán, señora Claudia López, creyendo en Ser Pilo Paga y aún creen. Enorme equivocación de los datos.
+
+No lleve a Colombia, si gana las elecciones, a este desastre que llevaron a Bogotá. Después de que nos sentíamos tan orgullosos, esto se llama Claudia López y algo Galán, pero Galán es más suave, Peñalosa y López, hundiendo la universidad pública en Bogotá, que era la Atenas Suramericana.
+
+Claro, eso lo dijo Bolívar y cuando se olvidaron de Bolívar, entonces nos mandaron a que somos de lo peor en educación pública. Por eso, la política bogotana se tira a Colombia y la prensa bogotana se tira a Colombia.
+
+Ahora, ¿qué pasa en nuestro gobierno? Promedio 2022, casi todas las regiones tienen hoy un promedio de educación superior, mejor que el promedio que había en el 2022. Mejoramos.
+
+Esta es nuestra prioridad, pero aún siguen unos malos. ¿Y dónde está Bogotá? Alcanza a salir. Alcanza a superar el promedio.
+
+Poquito. Alcanza. Y el malo se nos va volviendo Valle del Cauca, lamentable. Y creo que el peor es 73, que es Tolima.
+
+¡Ay, nuestro Gobernador, ay! Se dedica a hacer oposición contra Petro y se tira a su propio pueblo. 86 Putumayo, aún el tema amazónico, y 52 Nariño. Ojo con Nariño.
+
+Porque Nariño debe tener una de las mejores educaciones superiores de Colombia. Y lo mejor está en 70, que es Sucre. Compañero Ministro de Educación, Sucre.
+
+Y esto es promedio de públicas y privadas. El 5 muy bueno que es, 5 no es tan bueno, pero es Antioquia. Aquí el 5, miren esto. El 5 antioqueño, malísimo en los gobiernos pasados. Malísimo. Y es el esfuerzo del Gobierno nacional en Antioquia el que ha logrado que se ponga en verde en los últimos dos años.
+
+Dicen que odio a Antioquia, no, yo amo a su pueblo, pero odio a la mafia, que es política y comercial en Antioquia. Y que llevó a la juventud antioqueña a este grado de ignorancia. Porque los mafiosos necesitan jóvenes ignorantes para usarlos de mula, o de otras cosas, o de consumidores.
+
+En el Gobierno del ​​Cambio mejoran resultados  
+Y aquí el Gobierno del Cambio mejora el perfil de Antioquia, incluso mejor que el de Bogotá, que también mejora. Entonces este es uno de los grandes éxitos de Colombia, humana, el Gobierno del Cambio, en este esfuerzo. ¿Sucre y Córdoba dónde están? ¿No están, 63? ¿Cuál es Córdoba? 23, están bien con Sucre.
+
+Mire que esto hemos hecho en el Caribe. Sucre, Córdoba. Los mejores saltos, no podemos decir niveles, pero sí saltos, hacia arriba de la educación superior.
+
+Lo mismo lo vimos en los colegios. Luego aquí tenemos un maravilloso porvenir en el Caribe, si seguimos el programa del Cambio en los próximos años. Si no, a vender votos y a ser víctimas de los paras.
+
+Bueno y creo que aquí ya el presupuesto, que ya lo vimos, este en caso de la universidad, para la universidad pública. Mire Santos I, estos precios constantes, o sea los precios reales, del presupuesto, ya podemos decir que nosotros invertimos en la universidad pública el doble de lo que invirtió Santos I. Demasiado influenciado por Inglaterra, que tiene su esfuerzo en la universidad privada.
+
+Santos II mejoró un poco, Duque mejoró, pero aquí rompimos completamente las reglas y saltamos la educación pública para que la juventud de Colombia sea de las más avanzadas del mundo en todos los campos. Duplicamos a Santos I. Y aquí terminamos, porque como decía Santos, el amor está en el presupuesto, como lo dijo (Benjamín) Disraeli.
+
+Esta es la inversión en la universidad pública, mire cómo salta aquí, pero nosotros la disminuimos aquí por una razón, y es que había una trampa, que descubrimos porque Alejandro Gaviria y la otra señora que siguió, no la encontraron, se las preguntaban, como andaba más Gaviria pensando en salvar las EPS, pues no se dio cuenta y perdió la oportunidad de dirigir este gran esfuerzo educativo en Colombia. No sé si por ser rector de una universidad privada no se dio cuenta.
+
+El gran sa​lto
+Pero miren el salto. Estos son los recursos. Obviamente, si sumamos ya esto, pues el salto es del Gobierno, que ya casi no alcanzo por bajito, del Gobierno del Cambio.
+
+¿Cierto? Este es el gran salto. Viene a partir de aquí, pero aquí estaba un poco ser Pilo Paga, creo. ¿Y por qué hay esta disminución aquí en la franja de inversión y crece este azul que es traslado a funcionamiento? O sea, de aquí, trasladamos aquí.
+
+Y esta es la franja de gratuidad, que suma estas. ¿Qué pasó? Un descubrimiento de las trampas de los funcionarios medios, que pertenecen es al uribismo y no al Gobierno del Cambio, uno de nuestros problemas. Y es que la plata que estábamos dando para pagar profesores, para la gratuidad y el crecimiento de los cupos, nos lo metían en inversión.
+
+Trampa. Porque al meterla en inversión no lo cobija la Ley 30, es decir, es esporádico el aumento, y ningún rector se le mide a un crecimiento esporádico porque después queda cogido del cuello, porque no tiene la plata para seguir pagando los profesores.
+
+E hicimos este revuelco y nos fue bien. Por eso hay 190.000 cupos nuevos. Porque al meter esto en funcionamiento, del rojo al azul y pagarles a los profesores, profesoras y gastos corrientes con funcionamiento, esto queda cobijado de la Ley 30. Y eso significa, ni más ni menos, que es irreversible.
+
+Es decir, que nos metimos en un proceso de crecimiento de cupos irreversibles. Así elijan a un hijo de (expresidente Álvaro) Uribe, que no podrá devolverlo a menos que cambie la Constitución, y allá la sociedad colombiana si se deja, ya es la segunda vez, reformas a la Constitución para acabar con el recurso de la educación y meterlo en la guerra. O sea, en vez de educar jóvenes, matarlos.
+
+Resumen del periodo uribista, incluido Duque, matar jóvenes. Mírenlo por todos lados, 6.000 el uno, 3.000 presos el otro, los matan en manifestaciones, los matan como falsos positivos, como llamaron, miles de jóvenes muertos. Y le quitaron el dinero a la educación.
+
+Y entonces uno se pregunta qué clase de sociedad vota porque maten a sus jóvenes y le quiten la oportunidad de educarse. Irracional. Tiene que ser muy ignorante.
+
+La sociedad que prefiere que a sus jóvenes los maten, a que sus jóvenes estudien.
+
+El Gobierno del Cambio hace que a los jóvenes no los maten y en cambio, sí suba la inteligencia de la juventud para poder dirigir este país a mejores rumbos de lo que hasta ahora lo hemos hecho.
+
+Y terminamos. Gracias por haberme escuchado.

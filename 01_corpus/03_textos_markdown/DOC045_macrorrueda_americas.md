@@ -1,0 +1,75 @@
+https://www.presidencia.gov.co/prensa/Paginas/Macrorrueda-de-las-Americas-2026-Colombia-el-Pais-de-la-Belleza-palabras-260414.aspx
+
+Macrorrueda de las Américas 2026 - Colombia, el País de la Belleza: palabras del presidente Petro
+
+Corferias (Bogotá), 14 de abril de 2026
+
+Con el dinero nacional y el esfuerzo de este gobierno, hemos logrado hacer la rueda de negocios más grande en la historia de Colombia. Les guste o no, estos son hechos irreversibles que trae nuestro gobierno, los remarcamos, los volvemos a remarcar y no dejamos que los olvide la historia, así algunos quieran. Y vamos a verlo en los datos.
+
+Cuando recibimos este gobierno el déficit comercial, es decir, la diferencia entre la magnitud de importaciones y la magnitud de exportaciones de Colombia, era muchísimo más alta la cantidad en dólares de importaciones, que la cantidad en dólares de las exportaciones. No creo mucho en la teoría mercantilista, no se trata de que siempre tiene que haber un superávit, sino más bien un equilibrio, porque la importación es positiva dependiendo de qué es, y la exportación también es positiva dependiendo de otras circunstancias. Pero el resultado sumado en estos últimos cuatro años, que ya casi terminan, es que redujimos a la tercera parte el déficit comercial de Colombia, si comparamos el 2022 con el año que acaba de pasar, 2025.
+
+Esto tiene una serie de consecuencias económicas que hay que analizar para el país. Cuando se disminuye un déficit comercial de la forma como lo hemos hecho, hay que mirar qué fue lo que disminuyó en exportaciones, qué fue lo que aumentó y qué viene disminuyendo en las importaciones. Sin hacer este análisis, no sabemos si el trabajo hecho en materia de comercio exterior ha sido positivo o negativo.
+
+El análisis que hemos hecho hasta ahora es que efectivamente, lo que hizo desplomar las cantidades que diferenciaban las exportaciones de las importaciones ha sido la caída de exportar petróleo y carbón. Éramos desde hace 50 años -después que fuimos cafeteros- exportadores netos de carbón y petróleo en exportaciones legales, para no mencionar las ilegales. ¿Qué significaba esa articulación de Colombia al mundo durante los últimos 50 años? La ciencia lo que ha dicho es que ese petróleo y ese carbón son utilizados en escala cada vez mayor, en la reproducción ampliada de un sistema productivo que ha hecho de la energía fósil su ganancia. Energía fósil es energía hecha con cadáveres de hace millones de años. Es decir, es hidrocarburo.
+
+CARBURO VIENE DE CARBÓN
+
+De ahí la palabra carburo, que viene del carbono y que al difundirse a la atmósfera le aumenta el acumulado de gases de ese efecto invernadero, de manera que los ciclos mundiales del agua cambian. Se derrite cada vez más el hielo, se evapora cada vez el agua en mayores cantidades, cae en forma abrupta y torrencial. Por eso en Córdoba, en Sucre, en el mar Caribe colombiano o en el sur están nuestras tierras inundadas. A eso se le llama crisis climática, la ciencia ha demostrado una y otra vez que la atmósfera está matando la vida del planeta, por usar intensivamente el petróleo y el carbón del cual dependían nuestras exportaciones en los últimos 50 años, hasta llegar a un máximo en 2013, cuando exportamos 32 mil millones de dólares ese año.
+
+La humanidad que quiera seguir viviendo en este planeta debe dejar de comprar petróleo y carbón. Fue este gobierno el que propuso un plan de sustitución de exportaciones, que nos haga cada vez menos dependientes del petróleo y del carbón. Sin entrar en una crisis de comercio, podemos reemplazar esos miles de millones de dólares por productos menos dañinos a la humanidad, para construir una Colombia más bella, más tranquila y más hermosa. 
+
+Dadas las cifras que aquí se presentan, tengo que decirles que lo hemos logrado. La mayor parte de las exportaciones de Colombia van logrando remplazar el petróleo y el carbón, para disminuir a la tercera parte el déficit comercial de Colombia. Si lo comparamos con el año 2022, son bienes agrarios y agroindustriales, entre los cuales tenemos exportación de vehículos. Bienes que a diferencia del carbón y del petróleo, son intensivos en fuerza de trabajo: es decir, por cada unidad de capital en dólares o en pesos, genera más trabajo en puestos de trabajo que la economía extractivista centrada en extraer solamente petróleo y carbón.
+
+Esto ha permitido que tengamos el mayor número de puestos de trabajo del siglo y, como lo muestran las estadísticas del DANE, el menor desempleo de la historia este siglo. Y son datos que me gusta dar, desde un punto de vista macroeconómico. Son los datos que propusimos alcanzar en la campaña del 2022, y antes de que yo salga los estamos presentando en esta reunión, con empresarios de 60 países del mundo.
+
+DESEMPLEO A LA BAJA
+
+Lo logramos, a pesar de la oposición. Vamos a gritar ¡Viva Colombia! ¡Viva Colombia! ¡Viva el país de la belleza! ¡Viva! Y sigo hablando.
+
+Este resultado nos da la tasa de desocupación más baja del siglo. ¿Quién fue el primer presidente de este siglo? Terminaba Andrés Pastrana y comenzaba Álvaro Uribe. Y pasaron varios periodos presidenciales de unos, de otros. El último, el de Duque, nos dejó la tasa de pobreza y desempleo más alta del mundo. Más alta en la historia de Colombia.
+
+Partiendo de esos niveles tan altos de hambre, podemos decir tres años después que la redujimos, pero al nivel más bajo del siglo, no sólo de los gobiernos últimos que vivimos. Bien, a eso se le llama, salir de la enfermedad holandesa. Es que exportábamos cada vez menos agricultura, manufactura e industria incluso pesada, porque nos especializamos en petróleo y carbón de manera legal, y en otros menesteres de manera ilegal.
+
+Esa es una mala economía. Especializarse en algo que depende no de los saberes nacionales, sino exclusivamente de una variable aleatoria que pareciera depender de si deciden hacer una guerra o no con misiles. Al cambiar la matriz exportadora de Colombia, ahora dependemos cada vez más de nosotros mismos.
+
+Por eso en la lista de economías poderosas de América Latina, hoy Colombia es el segundo país de América Latina después de Uruguay en diversidad, es decir, en complejidad económica, en poder de resistencia. Por encima de Brasil, de México, de Argentina, a pesar de que tienen mayores niveles de producción, pero están más especializados y son más vulnerables a los choques de la economía internacional que Colombia. Por eso estamos resistiendo bien las crisis de la economía, que comenzaron desde el año 2008.
+
+He pedido que vendamos licor de cacao, no café en grano, no cacao en grano, licor de cacao y y café al consumidor en la mesa. Esta es una política completamente diferente a la tradición colombiana que es perezosa, porque cuando éramos cafeteros y el país tenía más trabajo, ese cambio fue irracional: la destrucción de la economía cafetera es una pérdida real de la sociedad colombiana.
+
+Hoy China puede ser el mercado al que podemos venderle más allá del café en grano verde que no sirve para enriquecer al campesino cafetero, sobreexplotado y se miran los diferenciales de precios: cuánto le llega a él, cuánto le cuesta a un consumidor una taza de café en París, en Pekín o en Nueva York. Todo va quedando en los intermediarios, incluidos los impuestos de esos países, por una sola razón: porque la Federación de Cafeteros sólo vendió durante décadas un café en verde que compraban dos multinacionales fuera de Colombia que revolvían y mezclaban. Así se perdió el gusto del saber del café colombiano. En este gobierno no nos inventamos el tema, pero sí lo agrandamos, apoyamos a toda familia porque se ha vuelto un trabajo familiar, a veces cooperativo, para elaborar el café excelso de Colombia hasta llevarlo al punto en que pueda estar listo en el desayuno de cualquier familia del exterior.
+
+Eso se llama aumentar el valor agregado. Cuando se aumenta el valor agregado se aumenta el trabajo nacional y cuando se aumenta el trabajo, señoras y señores, se aumenta la riqueza. La riqueza sólo nace del trabajo humano y de la naturaleza.
+
+TRES VENENOS
+
+Y Colombia sí que tiene una inmensa diversidad en naturaleza y en trabajadores, porque somos potencia mundial de la diversidad humana, cultural y natural. Nuestro destino manifiesto no es vender cocaína, no es vender carbón, no es vender petróleo, los venenos de la humanidad. Y aquí está la demostración.
+
+La otra cifra que ustedes presentan, además de los hechos comerciales de mercancías exportadas, es el turismo, que se ubica en la balanza de pagos, no en la balanza comercial. Extranjeros que vienen a Colombia, que nos dejan las divisas como si fuera una exportación y que nos ayuda a pagar la caída de las divisas que antes dejaban el petróleo y el carbón. Esa cantidad de dinero en turismo ya alcanza más de 10 mil millones de dólares.
+
+Hemos roto un récord nacional en atraer a población que no conocía Colombia, en enamorarse de manera que vuelve y gasta, y que recorre el país. Las cifras ya se han dado. 23 millones de residentes extranjeros han llegado a Colombia durante este gobierno.
+
+Aunque yo hubiera puesto la meta de 12 millones de extranjeros al año, que debería estar dando en tres años 36 millones, vamos en 23, y cada mes rompemos el récord. Colombia, país de la belleza, así a algunas personas aquí no les guste. Es una frase que me inventé en un discurso.
+
+Es invención mía, pero no cobro por ello. Y es la marca hoy de la campaña mundial que ha llegado a 650 millones de vistas en el planeta entero. Hubiera querido más, y que sea en la Torre Eiffel, y que sea en los principales lugares de turismo mundial.
+
+Algo se ha logrado, pero el resultado final es cuánta gente viene a Colombia. A pesar de los problemas que tenemos, por el calificativo de violencia, esto ha disminuido en muchas regiones de Colombia, que se mantienen otras, pero que permite que cualquier ciudadano o ciudadana del mundo deguste uno de los paisajes más bellos de la Tierra. 
+
+Al mismo tiempo, somos el segundo país en biodiversidad natural, segunda potencia mundial en especies vivas por metro cuadrado: tenemos 132 especies genéticas diferentes, de 132 pueblos del mundo mezclados en su sangre, debido a su historia. 
+
+TURISMO DISPARADO
+
+No todas esas personas piensan igual, lo sabemos. Vienen depredadores, pero la mayoría de los turistas que conocen este país se impresionan con su amabilidad, su capacidad de amar, su capacidad de entendimiento de las culturas diversas, y al mismo tiempo ven la exuberancia de la naturaleza, y se quedan cada vez más tiempo, incluso para muchos toda su vida.
+
+Así hemos roto las cifras del turismo, y de exportaciones en incremento agrario e industrial. Las remesas han logrado que la crisis cambiaria se haya detenido. En lugar de aumentar el déficit comercial, lo hemos reducido a la tercera parte, y el peso de Colombia es una de las monedas más fuertes del mundo. Esto tiene sus más y su menos, pero es el indicador final.
+
+Es así porque exportamos más, porque disminuimos el déficit, porque más dólares vienen del turismo, pese a que de manera brutal la tasa de interés ha sido subida, elevada. Estos son los peligros y las tormentas que hay que mitigar, para que no nos arrasen los triunfos ya alcanzados en los últimos años. 
+
+Felicito a quienes vienen de afuera, y a quienes venden de adentro de Colombia, porque en esto hay una tarea muy grande. No he podido encontrar diseños más bonitos en París, ni en Italia, que los que encuentro en Cartagena o en Villa de Leyva.
+
+Tenemos uno de los diseños más exquisitos, precisamente por la diversidad cultural y natural que poseemos. Solo hay que traspasarla al diseño, con telas finas, para que se dé el boom del diseño colombiano. Por eso mis ministras lucen siempre muy elegantes con ropa colombiana, que se puede vender cada vez más en cualquier lugar del mundo. Yo he pedido las túnicas Wayúu en el Medio Oriente, en el mundo árabe, en París y toda Europa, pero aquí mi director de artesanía todavía no me trae los objetivos logrados.
+
+El trabajo cada vez es menos muscular, cada vez más cerebral. La economía más exportadora será aquella que no contamine el mundo: energías limpias, pero también muchísima fibra óptica para transportar los saberes, el conocimiento, la universidad, la tecnología más avanzada hasta la casa y el hogar, que pueda autogenerar energía limpia a través de los paneles solares. 
+
+Aquí dejo pintado un mundo que ya se está construyendo en Colombia, que si se generaliza nos coloca en una nueva sociedad, en una vanguardia tecnológica y productiva, en la primera línea de la vanguardia mundial.
+
+Gracias, muy amables.

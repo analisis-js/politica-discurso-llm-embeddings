@@ -1,0 +1,61 @@
+https://www.presidencia.gov.co/prensa/Paginas/Palabras-del-presidente-Gustavo-Petro-en-el-acto-de-reconocimiento-a-la-dig-250115.aspx; https://youtu.be/GvvGipEOTMY
+
+Palabras del presidente Gustavo Petro en el acto de reconocimiento a la dignificación de la labor de los Recicladores de Oficio y el programa ‘Basura Cero’
+
+Soacha, Cundinamarca, 15 de enero de 2025
+
+Es obviamente para mí sensible el tema, desde hace 10 años que se construyó la política Basura Cero en Bogotá, que es de origen internacional, se mostró quizás de las máximas arbitrariedades de las que yo haya sido testigo para evitar que el negocio de la basura se transformase en un empoderador del sector popular de Bogotá que se dedicaba, de décadas atrás, al reciclaje y que pudieran ser como los zares de la basura, remunerados por los usuarios del servicio de aseo. 
+
+Aquella vez me cayeron truenos y centellas, tanto, hay que decirlo así, de los dueños de la prensa como de los dueños de la política, porque ni más ni menos, y no lo sabía, toda la actividad del aseo, los negocios, la contratación, está llena de podredumbre. 
+
+Los zares del aseo no son más que un cartel de la contratación nacional que depreda a los usuarios en un mal servicio. La demostración es Bogotá: hoy no es sino salir por una calle y encontrar arrumes de residuos botados en las calles, bajo la excusa de que el modelo de Bogotá, Basura Cero, no era eficaz, fue destruido casi por completo, sobrevive apenas porque un magistrado, el magistrado (Carlos) Henao, presidente de la Corte Constitucional, hoy fallecido, decidió proteger la actividad del reciclaje con una sentencia famosa que el alcalde de Bogotá en ese momento quiso aplicar. 
+
+Nunca pensé que aplicar una sentencia de la Corte Constitucional pudiera traer hasta la destitución del alcalde por parte del procurador Ordóñez, un señor de ideología fascista, que prefirió sacar al alcalde que consideraba socialista que aplicar la Constitución Nacional, que aplicar la sentencia de la Corte Constitucional, y él no supo porque al destituirme me hizo presidente de la República. Esas son las paradojas de la vida. 
+
+Pero hay que analizar lo que pasó en aquel entonces: como casi que en una vuelta a Colombia traían perseguidos a los vehículos arrendados para tratar de solventar la emergencia, mientras lográbamos establecer un sistema que permitiese que el reciclador y la recicladora pudieran ser remunerados por su trabajo, como ordenaba la sentencia de la Corte Constitucional. 
+
+Todavía recuerdo a Darío Arizmendi gritando todos los días por la radio, en Caracol Radio, cómo los vehículos arrendados podían vararse en alguna esquina de la carretera, ninguno se varó pensando destrozar por ahí lo que le habían ordenado que destrozaran los zares de la contratación del aseo. 
+
+Un sistema anacrónico
+
+Y hay que analizar eso en lo que es una década después. La gran contratación de los negociantes del aseo en toda Colombia consiste en mantener un sistema de aseo anacrónico e inservible tanto para la salud de los seres humanos como para la economía nacional. 
+
+Un sistema de aseo no consiste, como sabíamos que hace medio siglo sí lo era, en recoger los residuos al frente de la casa, echarlos a un camión y meterlos después, en la mayor parte de los casos, al aire libre en un punto de relleno o de depósitos de basuras de un municipio o de una ciudad. No consiste en enterrarlos en un relleno sanitario, así no se manejan los residuos en el mundo. En Colombia es lo que hacemos. 
+
+¿Por qué no se maneja así? Porque al enterrar los residuos va una riqueza. No es basura lo que se entierra. Es la materia prima de un nuevo proceso industrial que deberíamos aprovechar. Por eso se llama aprovechamiento al nuevo sistema de aseo. Enterrando la riqueza y pagando por pagar la riqueza, no hemos sino hinchado los bolsillos de un cartel de la contratación que no le está haciendo bien a Colombia. 
+
+Y por una segunda razón, porque al enterrar materia orgánica que podría servir para fertilizar las tierras de Colombia y producir alimentos, se produce gas, se produce metano que al salir a la atmósfera es 23 veces más poderoso en calentar la tierra que el mismo dióxido de carbono, CO2, y entonces acelera la descomposición climática, la crisis climática, la posibilidad de que se acabe la humanidad en el planeta tierra. 
+
+¿Por qué Colombia no ha sustituido ese modelo anacrónico, inservible y costosísimo para la sociedad que llamamos el transporte de basuras hacia los rellenos sanitarios y los puntos de cielo abiertos? Esa es una pregunta, ministra de Vivienda, porque nosotros ya tuvimos la experiencia en Bogotá hace 10 años.
+
+Remunerar a los recicladores
+
+Hay que empezar por remunerar a los recicladores, hay que empezar por priorizar y privilegiar a las y los recicladores sobre los carteles tradicionales del aseo. Hay que comenzar por asociarlos, darles poder, porque los amigos del cartel de la contratación del aseo, que tienen muchos en el Congreso, en la política y en los medios, son capaces de destruir la política de basura cero, como se demostró en la ciudad de Bogotá. 
+
+Remunerar al reciclador, ordena la Corte, y esa remuneración sale del pago de los usuarios del servicio. Y no es para subirle el pago del servicio a los usuarios, es para reducir las ganancias de los grandes carteles de la contratación. ¿Nos atrevemos o no? Yo me atreví en Bogotá, me costó el que me destituyeran, me costó el que persiguieran judicialmente en la Procuraduría, en las Contralorías, en la Superintendencia de Industria y Comercio, en los juzgados de tribunales administrativos, a mis funcionarios que participaron en la política Basura Cero. 
+
+Aún hoy salió un artículo atacando a uno de ellos, que por qué pedía que se le quitaran las multas. Dijo un periodista, porque tenía un apellido similar a mi familia: lejano será, porque nunca fue pariente cercano mío. Y resultó que eso sucedió y después les ganamos en todos los tribunales de justicia del mundo y de la nación porque lo único que estábamos haciendo era aplicar una sentencia de la Corte Constitucional.
+
+La destitución del alcalde se cayó en el Consejo de Estado, cuando estuvo dirigido por facciones progresistas de la justicia. La destitución del alcalde se cayó en la Corte Interamericana de Derechos Humanos. Y aún hay una sentencia que no se aplica en Colombia, porque ordenó que la Procuraduría no podía destituir a funcionarios de elección popular ni a ningún ciudadano por sus derechos políticos.
+
+A tal nivel llegó la lucha de los recicladores, en la visita al Papa Francisco me recordaba cómo en aquella época había recibido dirigentes de los recicladores para darles su solidaridad. Los derrotamos en todos los niveles de la justicia colombiana. Lo que había hecho Bogotá Humana no era poner una flota de aseo arrendada y vieja, como dijo la prensa. 
+
+Era nueva la que se compró y se puso al servicio público a través de la empresa Aguas de Bogotá. La liquidó Peñalosa y ahí sí dejó oxidar la flota de vehículos del aseo, que se había comprado nuevas cero kilómetros, por ahí aún quedan los restos oxidados en algún lote de la ciudad de Bogotá o de Cundinamarca, y hasta de Cúcuta las dejaron oxidar y hundieron la política. Ahora se trata de levantarla.
+
+La ministra de Vivienda al frente de la CRA, Comisión Reguladora de Agua y Aseo, aquí varios de sus miembros que estuvieron en la Bogotá Humana, tienen una responsabilidad en estos meses. No es solamente sacar este decreto sino garantizar que, en cada municipio, y es difícil porque ya no dirigimos esos municipios; que en la ciudad de Medellín, que en Barranquilla, que en Cali, que en Bucaramanga, etc., y que en Bogotá, se remunere al reciclador tradicional de oficio.
+
+¡Ojo con esa palabra!, al reciclador tradicional de oficio por su trabajo en bien de la economía, al establecer una economía circular y en bien de la familia colombiana, al garantizarle una atmósfera más sana. No es el nuevo reciclador poderoso, algunos de los cuales eran hijos de expresidentes de la República, a esos nunca los investigaron.
+
+Es al reciclador tradicional de oficio, aquella señora que llevaba a sus hijos a las cuatro de la mañana por las calles frías de Bogotá tratando de recoger algo de la caneca de la basura para venderlo en una bodega y lograr entonces comprar un pan para sus hijos. Ese es el reciclador tradicional de oficio. Si se remunera, sacamos de la pobreza a mucha gente, sacamos del trabajo infantil a muchos niños, sacamos de la indignidad a muchas mujeres.
+
+Se vuelven mujeres, niños y hombres dignos porque han cumplido una misión social que tiene que ver con que la vida pueda seguir en el planeta Tierra, que tiene que ver con que mitiguemos la crisis climática, que tiene que ver con que la industria colombiana pueda producir más barato, porque parte de sus materias primas no se compran nuevas, sino que se reutilizan mejorando las condiciones de equilibrio entre el ser humano y la naturaleza. 
+
+Así que una serie de factores fundamentales que llevan a que no se produzca más metano enterrado, que lleva a que los moscos ya no llevan la infección a los niños y niñas de los lugares circundantes al relleno sanitario como sucedió en Usme, como sucedió a los alrededores de Sibaté, no se produzca más en Colombia como ya está sucediendo en Barrancabermeja con la ciénaga de San Silvestre, como ya está sucediendo en Montería y vayan averigüen los nombres de los empresarios que están produciendo esos desastres ambientales, arrojando basura y líquidos putrefactos a las aguas de esa región y encontrarán que son los mismos que salieron de la ciudad de Bogotá, el mismo cartel de la contratación tratando de evitar que en Colombia el modelo de aseo salga hacia uno circular que permita que las condiciones de salud sean mejores para todas y todos los colombianos. 
+
+Resolución de la CRA
+
+Así que estoy esperando esa resolución de la CRA. 
+
+No solamente estas palabras de reconocimiento al reciclador, estas palabras que permiten su fortalecimiento dentro de la economía nacional, sino la orden tajante para cada alcalde, para que se remunere en cada lugar de Colombia el servicio de reciclaje del reciclador tradicional de oficio, de la recicladora tradicional de oficio, porque eso significa una Colombia potencia mundial de la vida. Ustedes son los constructores de la Colombia de la vida y no de la muerte, y este gobierno que es un gobierno de la vida entonces está a su servicio en busca de apoyarlos, en busca de protegerlos, en busca de que tengan el poder dentro del aseo con los usuarios y las usuarias y que un aseo mejor, una atmósfera mejor, un aire mejor pueda llegarle a los niños y niñas de toda Colombia. 
+
+Gracias por haberme recibido muy amables y esperaremos esa resolución de la CRA. 

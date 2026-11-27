@@ -1,0 +1,238 @@
+https://www.presidencia.gov.co/prensa/Paginas/Palabras-del-presidente-Gustavo-Petro-en-el-evento-Transformando-vidas-seguridad-humana-y-paz-total-en-Colombia-240614.aspx
+
+Palabras del presidente Gustavo Petro en el evento ‘Transformando vidas, seguridad humana y paz total en Colombia’, en la Universidad Sueca de Defensa
+
+ 
+“Los territorios excluidos de Colombia son étnicamente marcados. La marca negra y la marca indígena es una marca que está en los territorios de la exclusión en Colombia. Esos territorios de la exclusión, cualquier país europeo hoy los hubiera hecho territorios de la vanguardia económica, porque son los que dan hacia los mares”.
+ 
+Estocolmo, Suecia, 14 de junio de 2024
+
+El público mayoritariamente colombiano, obviamente, nos lleva a hablar de Colombia y de las causas de la violencia y las posibilidades de transformación de la sociedad del Estado y de la paz, paz que se ha denominado en este Gobierno bajo el epíteto ambicioso de paz total. Y seguridad, que se ha denominado en nuestro Gobierno, no es un invento nuestro, es el concepto de las Naciones Unidas, seguridad humana. Los apellidos en Colombia tienen mucha importancia porque si se dice ‘democrática’, si se dice ‘humana’, y se dice ‘ciudadana’, implican políticas completamente diferentes. En la historia concreta de Colombia difícil de entender desde puntos geográficos externos a nuestro país.
+ 
+Aquí viene hace tres décadas, más o menos, hacíamos con una especie de respiro en las circunstancias difíciles internas del país para gente como nosotros, una especie de respiro porque hacíamos giras, les llamamos así, en realidad dormíamos por ahí en la esquinita de cualquier apartamento pequeño de cualquier colombiano colombiana o extranjero que nos daba cobijo, y lo que hacíamos era hablar con las personas que se habían exiliado políticamente en ese entonces muchos, muchas, en Suecia, era un país predilecto del exilio, como París, Francia, eso nos iba dando una visión del mundo.
+ 
+A veces mal tramitada, repetir modelos que obviamente no eran aplicables a la perfección en un país como Colombia, pero en general una visión más rica del mundo que la que tenía la política tradicional mucho más encerrada, localizada, son expertos en ganarse y saben cómo unas elecciones para una Alcaldía de un municipio, pero pocos saben del mundo.
+ 
+Y ahí tenemos una ventaja que no debemos perder, nunca se sabe cómo es el mundo en general, pero me parece que todo proyecto político en cualquier país del mundo, debe tener una visión del mundo relativamente coherente y relativamente acertada de lo que está pasando porque si no se puede llevar la sociedad misma hacia una especie de abismo, de choque inevitable. 
+ 
+Nosotros tenemos esa relativa ventaja. Nosotros, me refiero a la gente progresista del país, de izquierda incluso, porque desde casi los inicios siempre ha tenido una especie de visión del mundo que ha cambiado con el mundo también, siempre desde un punto de vista alternativo. 
+
+Por eso el encuentro con el mundo escandinavo de muchos colombianos y colombianas, difícil, yo estuve cuatro horas al norte de aquí bajo casi el metro y medio de la nieve, y me encontré unos campesinos de Sucre, los hermanos Rivera, aún lo recuerdo, no sé qué se habrán hecho, que vinieron acá, por allá en las montañas, y cómo pueden estos caribeños vivir aquí, sin el porro y los vallenatos. 
+
+Ellos están exiliados porque los habían acusado falsamente, nunca salieron de su pueblo, de su vereda, los habían acusado falsamente de el secuestro de una señora se llamaba Gloria Lara, que al parecer la mató y la secuestró un familiar, pero se utilizó como un instrumento de destrucción de la organización campesina, en ese momento muy fuerte, la Asociación Nacional de Usuarios Campesinos, que era excepcionalmente fuerte en el Caribe colombiano y sobre todo en Córdoba y Sucre.
+ 
+Y a esos líderes sociales los acusaron y aquí vinieron a parar bajo dos metros de nieve, y entonces me encuentro con Suecia fue a raíz de esa búsqueda de sus dirigentes campesinos, y me dio la oportunidad incluso de entrar a dar una conferencia como esta en la Universidad en Uppsala a hablar de la situación colombiana, en ese entonces el auditorio no era colombiano, eran jóvenes suecos que querían saber qué pasaba en Colombia y yo quería saber qué pasaba en Suecia. 
+ 
+Entonces, esa interrelación que ha sido en muchos países de la Tierra ha sido importante para nosotros, para nuestra propia construcción política, lo que estamos tratando de implementar lo que pensamos, y Suecia, indudablemente, tuvo para nosotros una especie de imaginario, por alguna circunstancia, casi todo lo que yo llamo los hombres de paz.
+ 
+Coherentemente y cosmopolitamente hablando de paz, esa es una característica brillante de los pueblos escandinavos, pequeños en número, en un rinconcito difícil de vivir, pero que han sabido construir una sociedad del bienestar indudablemente igualitaria, comparado con nosotros, y cosmopolita. Y ese cosmopolitismo llevó a varios dirigentes suecos a una militancia por la paz mundial, los acercó América Latina. 
+ 
+Nosotros, casi todos en toda América Latina, en armas, en una época de insurgencia teníamos muchos que acudir a ellos, y ellos hablaban de la paz mundial. Algunos todavía se investigan, pero en general, los indicios son de asesinato porque asesinaban los dirigentes suecos que hablaban de la paz. Es, digamos, la tragedia política en la cual incluso en Colombia nos hemos desenvuelto también entre más hablamos de paz más crece el asesinato.
+ 
+Porque en cierta forma, lo descubrimos en el camino, no lo sabíamos en el principio, la paz es más revolucionaria que la guerra. En la guerra se puede caer en la inercia de la guerra, se puede hacer una vida alrededor de la guerra, los guerreros saben de eso el origen del pueblo escandinavo es relativamente ese también.
+ 
+Pero, indudablemente, lo que trae las transformaciones no están propiamente en las guerras, que al final no es más sino fuerza bruta, sino en la paz, que al final no es más sino fuerza inteligente, y los seres humanos somos fuerza inteligente, la única, entonces la paz potencia al humano, potencia la humanidad, y al potenciar la humanidad potencia la transformación, el flujo de la humanidad es un flujo como la historia, y el flujo y la transformación siempre son revolucionarias.
+ 
+Eso lo aprendimos en el camino, y hablando aquí y allá se fue el episodio que nos atrajo de Suecia, y yo creo que Colombia ha sido atraída también por Suecia y por Noruega y por varios países, una especie de atracción mágica que es importante explorar con mayor profundidad y con mayor intensidad.
+ 
+Comparar desigualdades
+
+Anoche en una reunión con reyes y reinas y princesas, para nosotros muy difícil eso, pero digamos es la realidad histórica del otro pueblo, en la conversación con personas, empresarios muy importantes de Suecia, de firmas muy famosas allá en Colombia, Ericsson, AstraZéneca, etc., en la conversación urbana nos interrogamos por qué Suecia llegó a estos niveles de igualdad que suenan estridentes en la prensa colombiana porque ayer mismo el capítulo de negociación colectiva entre los trabajadores y los empresarios en Colombia fue excluido de la discusión del Congreso de la República donde queríamos tramitar como una ley de reforma laboral, entonces reunido con los grandes empresarios suecos y al mismo tiempo presencial vía Twitter, cómo el Congreso quitaba el capítulo que llaman de la negociación colectiva.
+ 
+Quién tendría razón, en ese momento me preguntaba los empresarios suecos o los parlamentarios colombianos de derechas, que son mayoría, por eso pudieron sacarlo. Y si uno coloca ese problema concreto con la diferencia horaria, yo creo que tienen razón los empresarios suecos.
+ 
+Y a raíz de eso se desató, digamos, el diálogo, dónde está la base de la igualdad que uno experimenta en Suecia y la base de la enorme desigualdad de las mayores del mundo que uno experimenta en Colombia. Esa es una buena pregunta y por ahí podríamos explicarnos algo sobre la paz, la seguridad y la violencia. Yo siempre creí, ese es una de mis opiniones que viene transformándose, que la violencia es un producto cuando es interna, de la sociedad, es un producto de la no de la desigualdad social, no de la pobreza, esa es una visión simple, si es pobre es violento, si es rico es pacífico, no.
+ 
+Es más, la realidad es, y los datos dicen que eso no es así, si uno compara con relación académicamente las variables desigualdad social con las variables tasa de homicidios empieza a ver una correlación positiva, dicen los académicos, y eso indica que sí hay una correlación entre las sociedades más desiguales del mundo, en general, son las más violentas del mundo y Colombia está entre ellas.
+ 
+Está Filipinas, Sudáfrica y otras, pero si uno no compara esa sociedad con la tasa de homicidios pues está correlacionado, lo mismo que si uno compara las sociedades más igualitarias con la tasa de homicidios, entonces también está correlacionado, pero por la baja tasa de homicidios. Ahí hay un interrogante porque las sociedades con más baja tasa de homicidios tienen las más altas tasas de suicidio que es una violencia también.
+ 
+Y por qué ciudades con alta tasa de homicidios tienen bajas tasas de suicidio, esa la dejo ahí en puntos suspensivos. Ojalá alguien me explicara eso en alguna conferencia, porque es una violencia contra sí mismo.
+ 
+El tema es, entonces, la igualdad y la desigualdad, digamos como arquetipos, construcciones históricas de las sociedades, eso no se logra de un año para el otro a menos que haya una revolución muy profunda, que la ha habido.
+ 
+Pero yo tenía el pensamiento que era el enriquecimiento paulatino de una sociedad y su distribución social, la distribución social de esa riqueza, es decir la construcción de una sociedad igualitaria lo que llevaría a reducciones sustanciales de la tasa de homicidios. Pero, es decir, que la paz es una consecuencia de un proceso de equidad social, de justicia social, le llamamos nosotros.
+ 
+Las revoluciones s​ocialistas
+
+Pero la experiencia sueca que podría asimilarse a los años 30 que casi estalla una revolución socialista. Los obreros estaban muy bien organizados, había un conflicto patronal agudo, las huelgas estaban al orden del día y había partidos que ya se colocaban en la perspectiva de la insurrección.
+ 
+Como en buena parte de Europa en los años 20, la antesala del fascismo, el fascismo es la respuesta, eso en un grupo, los nazis su máxima expresión, matar el movimiento obrero socialista, comunista, gitano, diversos LGBTI, etcétera, matar la diferencia es exterminarla, al final Europa después de 50 millones de muertos, o sea una violencia no se conservan las tasas de homicidio en ese momento y una violencia total la guerra total para Europa.
+ 
+Entra una era que hemos llamado de oro, que son la construcción de estos estados de bienestar, pero me llamó la atención la conversación de ayer que los empresarios suecos que reconocían ese momento de lucha obrera y cómo lo solucionaron.
+ 
+Lo solucionaron vías un pacto obrero empresarial donde los obreros podrían elevar su nivel de vida, su salario a partir de la productividad, ese es el pacto socialdemócrata, no a partir de extender la jornada de trabajo. Esa es la situación colombiana.
+ 
+La productividad que genera la riqueza social, la estabilidad laboral e incluso algo por lo cual Suecia fue famoso mundialmente que fue permitir que los trabajadores de la empresa estuvieran en los Comités de Dirección de la Empresa, la Junta Directiva llamamos nosotros, eso en Colombia suena a subversión.
+ 
+Si yo propongo lo mismo, incipientemente lo hice porque puse un antiguo obrero de Ecopetrol en la junta directiva, la principal empresa de Colombia. Pero no fue ahí que comenzó la construcción de la sociedad igualitaria sueca, según mi interlocutor de anoche es la que pone en el momento en que los vikingos pescadores vivían del mar, las tierras fértiles, permitían que la comunidad distribuyera los peces.
+ 
+Pero una sociedad pobre, obviamente comparada con una y muy pobre, incluso comparado con las sociedades de ese entonces, de ahí el conflicto violento que se organizó, pero esa actividad simple de decir que el esfuerzo de pescar en los mares no era para el que lo había hecho y se lo apropiaba, sino que podía ser distribuido como después los botines, ahí nació una cultura de la igualdad. 
+ 
+Yo quería ver si eso pensándolo en términos de Colombia tenía también algún antecedente y así habíamos experimentado culturalmente en nuestros pilares como colombianos y colombianas y sí se puede encontrar indudablemente en las sociedades indígenas, hay formas de distribución social, en las comunidades negras liberadas a sí mismas de la esclavitud había formas de distribución social.
+ 
+En nuestro caso se hacía desde la resistencia, esclavos que se liberan a sí mismos, comunidad indígena que aguantaba en las montañas el que no las conquistaron, desde el poder lo que había era depredación, feudalismo y esclavitud, y esa es la diferencia en mi opinión: eso dejó unas marcas en ambas sociedades que se fueron desarrollando. Ya después, bajo la historia, nosotros nacimos en medio de la desigualdad, el poder construido alrededor de lo que hoy llamamos Colombia, que no se llamaba así antes, hace cinco siglos, es un poder de depredación, de exclusión.
+ 
+Por su lado más violento, el esclavismo es más violento que el esclavismo contemporáneo y el feudalismo que venía de España y que fue impuesto sobre una sociedad que no sabía de eso y que tenía más criterios igualitarios que feudales, que era la sociedad precolombina allí. Yo creo que nace una marca de la cual no nos hemos podido liberar.
+ 
+La exclusión como fórmula del poder no es un criterio capitalista. En eso nos equivocamos, incluso las izquierdas, es un criterio feudal y esclavista que en la Colombia contemporánea sigue siendo una marca cultural, o anticultural si queremos llamarlo así, y es lo que provoca formas diferentes de violencia: violencia desde abajo, violencia desde arriba, cuando se está en sociedades desiguales la idea de enriquecimiento acude generalmente a las armas.
+ 
+Cuando se está en sociedades relativamente igualitarias no hay igualdad total, y es una igualdad económica, no una igualdad biológica ni intelectual ni espiritual, porque todos los seres somos como las huellas digitales, diferentes, y esa diferencia de nuestra riqueza y nuestra individualidad, que siempre se preserva, pero en medio de una colectividad. 
+ 
+Robinson Crusoe no existe y por eso el neoliberalismo se estrella contra la realidad de la humanidad, no existe un Robinson incluso ni somos caballos que competimos en carrera a ver cuál es el más poderoso porque ni siquiera los caballos compiten, el caballo que va adelante en las manadas está dirigiendo la manada no está compitiendo propiamente, como los humanos hacemos que compitan.
+ 
+El ser humano es colectivo y la idea de colectividad que se vuelve pecaminosa bajo la ideología neoliberales es lo que nos ha hecho vivir en el planeta.
+ 
+Las desigualdades human​as
+
+Pero en medio de esa colectividad, indudablemente también somos individuos en estas sociedades igualitarias, digamos la forma de enriquecimiento es más social. No hay necesidad de recurrir a las armas internamente para enriquecerse.
+ 
+Se logra digamos ese tipo de cultura y civilización en sociedades profundamente desiguales, la idea de enriquecimiento que también está históricamente determinado que es riqueza, se hace acudiendo a la violencia, a las armas, de alguna forma tanto abajo como arriba desde el poder.
+ 
+La desigualdad por eso es más violenta que la equidad, esa es mi comprensión de estos asuntos y Colombia es una sociedad que cuya historia ha pasado por formas violentas de acumulación de la riqueza, llámese tierra, llámese dinero público, llámese recursos naturales no renovables, llámese agua, llámese oro, llámese en esmeraldas, llámese cocaína, llámese industria, incluso lo que se ha generado son mecanismos violentos del enriquecimiento y de la acumulación de la riqueza, y ese es nuestro karma que debemos superar.
+ 
+Esas violencias han pasado por tres fases diferentes, digamos en los últimos 70 años. Una es la guerra la violencia liberal – conservadora, 300.000 muertos en 11 millones de habitantes. Yo creo que es la más grande del mundo en ese momento, es después de la Segunda Guerra Mundial.
+ 
+Cuando ustedes estaban haciendo el Tribunal de Nuremberg, en Alemania, juzgando a los nazis por genocidio y crímenes de guerra y aparecía un Derecho Internacional, democrático, producto de una sabiduría, la de superar la guerra y el conflicto humano, incluso de cómo humanizar el conflicto humano armado, incluso los protocolos de Ginebra, etc., ese Derecho Internacional que se construye allí y que tiene su raíz simbólica más clave en el Tribunal de Núremberg.
+ 
+Al mismo tiempo, exactamente en la misma fecha, estalla la violencia liberal - conservadora en una mención mayor por el asesinato Gaitán en Colombia, los uniformes del Ejército que salen a reprimir la insurrección popular el 9 de abril del 48, son uniformes alemanes.
+ 
+Por eso en las fotos, que le da a uno escalofrío, en las fotos viejas de la ciudad de Bogotá en insurrección, las hogueras, los edificios quemados, el pueblo en las calles desorganizado por el alcohol, no había ahí una vanguardia política que dijera la toma del poder en algunos lugares sí sucedió, poder obrero Barrancabermeja, por ejemplo así se creó Ecopetrol, la Junta Revolucionaria del Magdalena Medio y en otras partes pequeñas, pero en Bogotá las foto muestran una insurrección popular, barricadas, etcétera y un Ejército vestido como por el ejército de la berma.
+ 
+Entonces la foto es evidente lo que iba a pasar porque esos ecos mundiales se habían vivido en Europa como como hace dos siglos desde un punto de vista positivo la idea de la democracia, la independencia y la libertad. Esta vez entraron también a Colombia, pero bajo las ideas de Mussolini Franco y Hitler. 
+ 
+Colombia nunca hizo catarsis de esa vinculación ideológica nunca el Partido Conservador que hoy es un partido, ha sido todo este tiempo legal, pero el Partido Conservador en esa época en el Gobierno Ospina Pérez que asciende por elecciones por la división liberal de Gabriel Turbay Gaitán, 46 embajadores del Partido Conservador que publicaba en sus diarios conservadores los discursos de Mussolini, de Franco y hacía eco de ese tipo de planteamientos, como no había una comunidad judía enorme a la cual echarle la culpa de todo, como en Alemania, entonces inventaron la tesis de que eran los liberales los judíos bolcheviques de Colombia, eran liberales, eran mayoría. Eran un país mayoritariamente rural y entonces lo cogieron como el objetivo tal cual los franquistas, los fascistas y los nazis de exterminio a sangre y fuego.
+ 
+La primera vi​olencia
+
+Y parte de lo que hoy vemos de la violencia colombiana, sus peores aspectos, nacen ahí, verdad es que no se ha evidenciado en Colombia. Es decir, que tenemos una especie de fascismo desarrollado desde el poder. Yo no diría silvestre sino incógnito, pero es la forma de proceder fascista, la eliminación física de la diferencia, por eso en la historia contemporánea ustedes ven no solo el genocidio contra el pueblo liberal, que siendo rural se defiende, y entonces aparece lo que habíamos aprendido los españoles cuando resistieron a los franceses en su invasión allá en el siglo principio del siglo 19: la guerrilla, un invento español, es un invento humano cada vez que hay una debilidad militar ante algo mucho más fuerte, lo ha utilizado la humanidad muchos tiempos, pero la izquierda latinoamericana a diferencia de muchas izquierdas recogió esa eso, veía por venía por el mundo español y lo reprodujo a través del liberalismo y el país se llenó de guerrillas y se volvió una guerra civil, tal cual España pero sin ser muy consciente de lo que era. Esa es la primera violencia de esta época, 300.000 muertos de 11 millones de habitantes. Hoy no vivimos una violencia así ni podemos pensar que se puede tratar la violencia colombiana. ¿Cómo se superó?
+ 
+Y esa es una pregunta que nosotros debemos hacernos porque es importante para la resolución de los conflictos, cómo salimos nosotros de la violencia. No fue con un Tribunal de Nuremberg, fue porque no queríamos, o no querían los dirigentes conservadores de entonces, que Laureano Gómez que era pro fascista, ser juzgado por crímenes de guerra y genocidio, ese fue el costo y a partir de ahí una marca que nos sigue hasta hoy: la impunidad judicial, es decir, los crímenes más graves cometidos en Colombia desde esa época hasta la fecha no son juzgados. 
+ 
+Solo ahora recién empieza a juzgarse y la atención que provoca a eso le llamamos la verdad, es una atención casi que total , es la verdad que desnuda el poder en Colombia y al desnudar el poder en Colombia lo transforma, lo cambia, por eso soy yo Presidente, si no, no hubiera sido posible ese proceso que ahora estamos viviendo, intentando construir una paz que pasa por una verdad judicial no solo histórica, provoca una atención total, que la prensa llama polarización, pero no es polarización, eso es cuando una realidad es el efecto de la verdad en una sociedad acostumbrada a la mentira y a la impunidad. 
+ 
+La estrategia colombiana de aquella época de nuestros abuelos para salir de esa mortandad, años 57 al 64, fue convocar el poder constituyente. Eso también si lo pronuncio hoy me demonizan, pero en aquella época fue convocar el poder constituyente, es una idea en mi opinión genial, los dirigentes liberales y conservadores, ambos, de lo que llamamos la oligarquía colombiana se reunieron en un pueblo de España, bajo Franco. 
+ 
+Y llegaron los liberales descendientes de lo que se llamó la ‘revolución en marcha’ que inauguró Pumarejo y antes varios dirigentes liberales ya muy proclives a transformaciones modernas y democráticas de la sociedad colombiana: plantear la reforma agraria de López Pumarejo, año 36, plantear la legalización de los sindicatos, plantear las negociaciones colectivas, es decir, la misma época que Suecia lo planteó y muchos otros pueblos, un pacto obrero patronal se planteó en Colombia en 1936 y se hizo Constitución.
+ 
+Es decir, era una sociedad con ganas de avanzar en realidad, a pesar de sus desigualdades, solo que la respuesta a ese pacto, a esa reforma constitucional que se denominó la ‘revolución en marcha’ fue la violencia. Fue el fascismo desatado lamentablemente por el Partido Conservador, y se extendió como una hoguera terrible, terminamos como los españoles sin la claridad ideológica. Y para salir de ahí, entonces se recurrió a un pacto oligárquico de élites, pero que convocaron el poder constituyente.
+ 
+Ese es el acuerdo de Benidorm, creo que se llamaba el lugar, el plebiscito se da bajo una dictadura, paradoja, pero no era una dictadura de militares en el poder, no era propiamente una dictadura, era el intento de transitar de una enorme violencia hacia una sociedad más pacífica, el Ejército contrario a lo que sucedió en América Latina ese Ejército jugó el papel de la transición hacia la paz, fue el que propuso la amnistía a los guerrilleros liberales.
+ 
+Y se creó el ambiente, la población como nunca antes salió a votar, el mayor nivel de participación política de la historia de Colombia en votos y votó por la paz y a través de una figura, ese fue el invento colombiano, distribuir el poder político entre los liberales y los conservadores de manera milimétrica y alternarse en el poder durante 16 años en lo que se llamó el Frente Nacional. Sirvió y fue efectivo para acabar una violencia de 300.000 muertos.
+ 
+Segunda viole​ncia
+
+Pero empezó la otra porque al concentrar el poder en ellos mismos en un momento en donde estamos hablando ya de los años 60, el mundo estaba ya en plena Guerra Fría y se libraban las luchas armadas, digamos en buena parte de los países del sur que llamaban del Tercer Mundo, en África, mundo árabe y sudeste asiático, etcétera, donde aparece Olof Palme en un mundo que iba hacia la tercera Guerra Mundial, indudablemente había la crisis de los misiles en Cuba, que ahora otra vez está, miren la paradoja de la historia, ahora tenemos submarinos rusos nucleares en el Mar Caribe, en Cuba, no por la maldad del pueblo cubano sino porque a Cuba la tienen bloqueada hace décadas, si están matando literalmente de hambre un pueblo que es brillante culturalmente, porque el Caribe todo, incluido el colombiano, son de la cultura Caribe, es el encuentro del Mediterráneo con toda su historia de civilizaciones antiguas que llega y se encuentra en un mundo cultural con el Caribe. 
+ 
+Del cual aquí fue premiado Gabriel García Márquez, que es una expresión del Caribe, o Alejo Carpentier o la brillantez de la palabra o el realismo mágico que se extiende a toda América Latina pero que tiene en el Caribe, que es el fruto del encuentro pacífico en términos culturales, pero armado al final, de dos civilizaciones, la que venía del Mediterráneo y la que existía ya en el Caribe en el mundo Maya, ya habían desaparecido, pero habían irradiado las formas culturales del Caribe. 
+ 
+Digamos, nuestro invento de la paz fue ese, pero también siguió la segunda parte de la violencia porque inmediatamente se tramitó la insurgencia socialista, que en Colombia fue campesina por la reforma agraria, no era propiamente socialista, el Partido Comunista Colombiano no era obrero, era campesino, y se le ocurrió a un brillante dirigente también conservador, muy influenciado por las ideas conservadoras que eran fascistas se le ocurrió la brillante idea de bombardear las cooperativas campesinas de los comunistas que no estaban en armas, pero estaban armados, no estaban en conflicto, pero guardaban las armas de los liberales.
+ 
+Habían sido liberales y se habían transformado ideológicamente por el cambio del mundo hacia lo que se llamaba la revolución social, y esas cooperativas fueron bombardeadas e inició la segunda violencia, muy pegada a la primera, y con casi los mismos métodos que se heredaron incluso por parte de los comunistas que hacían limpieza y se una frase que se usaba en la violencia liberal conservadora ‘limpiar el pueblo’, y ‘limpiar el pueblo’ era que si el pueblo era de mayoría liberal mataban los conservadores o los acaban, y si el pueblo la conservador mataban los liberales, los acaban. Los pueblos eran todos pintados de puertas rojas que era el color del partido liberal o azules que era el color del Partido Conservador, aún hoy hay pueblos así. Claro, si entraba una banda armada liberal a un pueblo de puertas azules mataba la población. Y al revés.
+ 
+Ese método de ‘limpieza’, entre comillas limpieza, aún existen en Colombia, pero en la guerra insurgente se utilizó limpiar las zonas limpiar las zonas de guerrilleros de ayudantes de la guerrilla o de colaboradores decían del Estado, ‘orejas’, le decían y siguió los mismos métodos en una violencia bastante bárbara, tramitada por métodos bárbaros. Protocolo de Ginebra ahí no existe, Derecho Internacional no existía, eso duró varias décadas. Nosotros participamos de eso tratando de darle un contexto, a nosotros por estar por aquí nos llevamos ciertas ideas que entraron como una piedra en las aguas de la violencia colombiana, como decir ‘hagamos un diálogo nacional’, 1982, M-19, nosotros éramos del M-19 armados. 
+ 
+El M-19 era socialdemócrata, entonces aquí nos los clandestinamente nos hablábamos con los socialistas europeos, Felipe González que ayudó mucho, con los suecos, con los alemanes. Se formó en América Latina una cosa que no sirvió para mucho, pero en ese entonces era famosa tratando de ligar un esfuerzo democrático entre Colombia, ese fue un poco la diferencia en medio de un conflicto bárbaro, cada vez ascendente, muy rural, muy campesino, más habría dicho que el método campesino es la venganza.
+ 
+Por eso decía que la vanguardia eran los obreros, no los campesinos, nosotros estamos viviendo todo es una práctica y terminamos proponiendo una reconstrucción democrática de Colombia a partir del diálogo nacional y después, no lo sabíamos en ese momento, una nueva Constitución y una Constituyente, y ahí acaba la segunda fase de la violencia, 1991, el mismo año que cae la Unión Soviética pero no, digamos coincidencia, porque en ese momento se cae de una visión alternativa al mundo con una influencia en la FARC que era pro soviética, en los demás países de América Latina no giró alrededor del mundo soviético, giro alrededor de Cuba.
+ 
+Y Cuba tuvo su encontró con el mundo soviético porque como los gélidos, eso está muy bien descrito en el libro El Siglo de la Consagración a la Primavera, de Alejo Carpentier, cómo la bailarina rusa clásica al llegar al Caribe se transforma en la exuberancia de la danza Caribe. Ese libro es muy bonito, a mí me encantó, es la obra de Stravinski pero vuelta literatura, palabras alrededor del encuentro del mundo europeo con el mundo caribeño, pero en esta ocasión Alejo Carpentier siempre pintó ese encuentro, el siglo de las luces, pero aquí era la bailarina rusa, el ballet cubano, ustedes saben, es uno de los mejores del mundo, ballet clásico caribeño, pero cómo se trasladó el ballet clásico europeo al ballet clásico caribeño, pues fueron las rusas las primeras.
+ 
+Y son famosas, bueno, eso tiene su magia, porque el ballet clásico ya no es tan clásico, es caribeño, y a la danza caribeña, pues yo soy caribeño, te digo que es de las mejores del mundo pero.
+ 
+Bueno, yo aquí me estoy yendo por las ramas. Lo cierto es que nosotros, el M-19, surgió en el Caribe, que no el Valle del Cauca, surge en el Caribe ese soplo democrático que realmente terminó la segunda fase la violencia. O sea, nosotros salimos de la Guerra Fría que en Colombia era calientísima, fue ahí cierto, coincidencialmente, la Unión Soviética se desplomó, el paradigma del socialismo en ese momento versión soviética se desplomó, sobrevivió una guerrilla, la más pro soviética de todas, paradoja, todo lo demás entró a un proceso de construcción democrática inédito la constitución del 91.
+ 
+La mayoría de la guerrilla, miles de hombres y mujeres dejaron las armas por sí mismos, no porque estuvieron derrotados, simplemente hubo una reflexión, una auto determinación de que la violencia no nos conducía la transformación sino a una guerra eterna y que, por tanto, una transformación de Colombia podría ir por caminos pacíficos.
+ 
+La tercera v​iolencia
+
+Tampoco hemos podido decirlo fehacientemente, porque inmediatamente hicimos la Constitución del 91, un poco antes, aniquilaron todo un partido político 5.000 militantes asesinados en una alianza nueva inédita que era las facciones más de derecha del Estado colombiano con el narcotráfico usando el ejército que había sido factor de paz en la pasada violencia aquí lo llevaron a ser parte de la Guerra
+ 
+En una instancia digamos de querer un proyecto democrático, vía pacífica, está en veremos, es decir, ahí hay que poner puntos suspensivos. Las FARC decidieron continuar en las armas pero sin campo soviético siendo pro soviéticas, Timochenko se llama el comandante, hablaban en ruso, se habían educado de jóvenes en Checoslovaquia, etc., como todo ese mundo.
+ 
+Y caído el paradigma decidió empezar a financiarse de un impuesto sobre una nueva plantación que existía en Colombia solo por fines indígenas y religiosos que era la hoja de coca.
+ 
+Pero ya existía la mafia colombiana, que era urbana de origen popular, no era rural, era comerciante y básicamente construía sobre la ruta de los viejos contrabandistas caribeños que rompían el monopolio español y que las habían utilizado para enviar marihuana a los Estados Unidos, reconstruyó las rutas y empezó prácticamente el origen del narcotráfico colombiano en 1982. 
+ 
+La violencia del narc​otráfico
+
+En 1991 empiezan la ruralización del narcotráfico a partir de plantar en la misma Colombia la hoja de coca que no se plantaba, estaba en Bolivia y Perú, los narcotraficantes colombianos eran específicamente transportadores, productores de cocaína y transportadores de cocaína hacia Estados Unidos, ahí comienza la tercera fase la que tenemos en dimensiones como tasa de homicidio cada vez menor.
+ 
+Nosotros decimos la violencia colombiana, pero nada es equiparable a la violencia de mediados del siglo 20 cada vez es de menor intensidad cada vez se localiza más.
+ 
+No es una violencia nacional, los proyectos armados nacionales ya no están, los proyectos armados nacionales se configuraron para tomarse el poder como los proyectos nacionales contrarrevolucionarios se configuraron para detener la toma del poder, ese conflicto se acabó. Tenía, obviamente, banderas ideológicas de uno y otro lado, el actual no son conflictos territoriales ligados al mundo, no ligados al poder político central de Colombia. Y esa es la diferencia del la tercera fase y es donde tenemos que actuar y donde estamos actuando nosotros, ahora como Gobierno, pasamos de la insurgencia al Gobierno.
+ 
+Esta tercera fase es más compleja porque no depende de nosotros propiamente, yo creo que tiene dos factores, uno interno que es la exclusión territorial. O sea, esa vieja manera marcada, comenzaba la conferencia por la exclusión, los criterios de equilibrio y de igualdad social están es en la resistencia indígena y negra, no en el poder como sí lo tuvieron ustedes, esa exclusión genera una exclusión poblacional racial y territorial.
+ 
+Colombia hay un racismo exacerbado aunque no se reconoce, igual que no se reconoció el fascismo exacerbado, la élite que ha dirigido a Colombia es la descendiente de los españoles. Pero no es en general, no los blancos, son los descendientes de los españoles, un blanco descendiente italiano de es mirado como excluido, esos no pertenecen a la élite, los descendientes de francés de los que llegaron por ahí aventurando.
+ 
+Mucho menos los árabes que llegaron, los árabes están en la marca inicial de la nacionalidad colombiana porque eran los marineros que venían a las carabelas derrotados en ese mismo año por los conquistadores españoles que no dejaron que la cultura árabe pudiera permanecer en la península ibérica, la cristianizaron y siguieron de largo hacia el hacia el Caribe, hicieron lo mismo. Esa es parte de nuestra trayectoria histórica, lo que ellos llaman la reconquista, que es el mío Cid Campeador que empieza a sacar a los árabes, a la cultura árabe, no a los árabes, y siguen en el mismo año 1492 cuando toman Granada siguen hacia América, la descubren según ellos, es un descubrimiento para ellos, nosotros también descubrimos a los españoles.
+ 
+Porque en Colombia, en Chiribiquete, hay unos murales yo le llamo la Capilla Sixtina rupestre pero de hace 20.000 años, y acaban de descubrir unos jeroglíficos, los más grandes del mundo, y esos murales rupestres son los más grandes del mundo, están en medio de la selva. En esa época no estaba la selva cuando los hicieron, eran praderas y eran, digamos, seres humanos con cultura hace 20.000 años, entonces cuál descubrimiento, es un encuentro de mundos, incluso la historia habla de que los vikingos ya habían encontrado América.
+ 
+E, incluso, yo soy una tesis por simple experiencia física que los Samis ya habían encontrado América y que es el mismo pueblo indígena norteamericano en Canadá, pues son muy parecidos, incluso su forma estética, son iguales, es decir, el descubrimiento nunca existió, ya había una transferencia humana por estos continentes y aquellos. Lo que pasa que esa historia sí hay que descubrirla.
+ 
+Pero digamos, el tema de la paz y de la guerra en Colombia, entonces tenemos una exclusión del territorio derivado de aquella época de hace cinco siglos por la marca esclavista y por la marca feudal.
+ 
+Es una exclusión racial porque los territorios excluidos de Colombia son étnicamente marcados, son territorios indígenas o negros y con los mestizajes también que se derivan de esa realidad, pero la marca negra y la marca indígena es una marca que está en los territorios de la exclusión en Colombia. Esos territorios de la exclusión, cualquier país europeo, hoy los hubiera hecho territorios de la vanguardia económica porque son los que dan hacia los mares.
+ 
+Ahí nuestro feudalismo persistente, o sea, cómo una nación pudo sacrificar sus mares, que los tenemos en abundancia y en los dos, hacia el Pacífico y hacia el Atlántico, somos un puente cultural hacia Asia y hacia Europa. 
+ 
+Las Conservas, un ministro de educación mexicana, decía que éramos ‘la raza cósmica’, de esa frase se burlaron hace poco en la prensa, pero lo veía por eso, por la posición geográfica, y la historia entonces cómo es que Colombia abandona sus mares y excluye el territorio y la población que está sobre esos mares porque estaban los negros, porque estaban los indígenas, porque no estaba la élite blanca española excepto en Cartagena donde han hecho un ‘guetico’ que llaman el Centro de Convenciones, y la zona histórica, y se quedó el poder en las altas montañas donde no hay ni un río navegable en el centro del país, como Madrid, que es Bogotá. Y allí en el centro del poder, el Palacio nuestro, donde yo vivo, es un palacio francés hecho en 1980.
+ 
+Es la proyección en el imaginario de las élites de Colombia de lo que significa su poder, un poder blanco, europeo, aristocrático y excluyente.
+ 
+Y entonces ese territorio excluido hoy es el territorio de las zonas de las economías ilícitas porque, obviamente, su población pues no se iba a dejar morir de hambre y no encontró otra fórmula que ligarse al mercado mundial, no a Bogotá, sino al mercado mundial de la manera que podía ligarse que era en la ilicitud misma creada por los poderes mundiales sobre los mercados mundiales.
+ 
+Como fue el whisky en Chicago, importado por los irlandeses excluidos y los italianos excluidos en los Estados Unidos, igual sucedió aquí pero frente a la cocaína, fundamentalmente, y algo de la marihuana. Y cuidar esas zonas de exclusión cuidarlas implica armas.
+ 
+Se necesitan ejércitos para construir las rutas clandestinas que sacan la cocaína al mar y que llevan del mar primero hacia Estados Unidos, hoy cada vez menos hacia Estados Unidos y cada vez más hacia aquí y hacia el Asia, porque Estados Unidos cambió los gustos de las drogas alternativas y contestatarias, los hippies, que era la marihuana, pasó la cocaína neoliberal competitiva, trabajador no se duerme compite, y de ahí pasó a lo que hoy es la sociedad de este momento a la droga de la muerte, a la droga de la crisis climática, la droga de no hay esperanza y estamos en vía de extinción: el fentanilo. La cocaína, entonces, a través de sus redes mafiosas, viene es hacia Europa y hacia Asia tratando de entrar a China. Si entra China durará un milenio.
+ 
+Pero digamos, el cambio geográfico del mercado de la cocaína también es un cambio geográfico en las economías ilícitas en Colombia. Ahora, ¿cómo salir de ahí? Cómo no transitamos a una cuarta fase de violencia, después de que ya hemos vivido la primera, la segunda y estamos en la tercera más localizada, menos violenta desde el punto de vista de la tasa de homicidios. Colombia la viene desplomando, la ciudad de Medellín hace tiempo no está en las 50 ciudades más violentas del mundo, en cambio sí hay cinco ciudades norteamericanas. Bogotá hace tiempo, yo creo que no está ni en las 300 ciudades más violentas siendo la capital de Colombia. 
+ 
+Aún nos quedan algunas, pero eso viene cayendo, digamos nuestra violencia, viene deshaciéndose, pero se va concentrando en unos territorios específicos. Todavía tiene ecos de la segunda fase, entonces todavía levanta una bandera rojinegra, todavía un discurso, todavía una foto antigua, pero el motor está en la economía ilícita. Todavía hay comandantes guerrilleros de la segunda fase, indudablemente, viejos, canosos como yo, más canosos. Han muerto naturalmente, ya no en un combate, se han engordado un poco, pero son ecos ya no es el determinante de la violencia de hoy, eso sería una confusión tenerlo así. 
+ 
+Pueden tener salidas, indudablemente son políticas porque cuando ahí digo los políticos y la política es una forma relativamente eficaz de resolver la violencia, pero esta de las economías ilícitas propiamente que es la que domina tiene que tener es una salida económica, no política, no es política lo que se está proponiendo. Una agenda política. 
+ 
+Es que queremos que las elecciones sean así o asá, no. Es un problema económico: qué van a hacer con este territorio, el territorio excluido de Colombia cómo puede prosperar este territorio, esa es la conversación, qué van a hacer con nosotros, dicen ellos, jurídicamente, es un problema de negociación jurídica y de inclusión económica.
+ 
+Ahora, cómo se incluye el Pacífico colombiano, cómo se incluyen las zonas negras, de población negra, las zonas indígenas, las zonas del Caribe empobrecido, las zonas que distantemente están en desigualdad social con el centro político del país, cómo en la ciudad de Bogotá, que no es Estocolmo, podemos tener un poquito de Estocolmo en el norte de Bogotá, pero si vas al sur estás en otra ciudad, una ciudad de 8 millones de habitantes en solo 15 kilómetros si uno hace el recorrido, estás en la pobreza más grande versus la pobreza más grande; lo mismo es Cartagena, nuestra ciudad hermosa, o cualquier otra, cómo se incluye el sur de Bogotá social económica y políticamente. Sabías que nosotros ya como gobernantes hemos tratado de dar respuesta no solo desde afuera, pero sí en el país como el territorio excluido de Colombia por una dinámica de poder excluyente, indudablemente, y ahora absorbido por mafias armadas de tipo multinacional. 
+ 
+En esos pueblos lejanos llegan croatas, llegan albaneses, llegan serbios, llegan franceses, llegan españoles, llegan norteamericanos. Todavía no hemos pillado el primer sueco, pero a lo mejor llega, a negociar como si fuera una bolsa, un Wall Street, pero de la cocaína, cómo ese territorio lo incluimos y entonces las armas dejan de tener sentido.
+ 
+El n​uevo reto
+
+Ese es, digamos el reto, ahí hemos hablado mucho todos los días de cómo la matriz de inversiones públicas del Estado colombiano deja de ser El Poblado de Medellín y el norte de Bogotá y pasa a ser el Chocó, el Cauca, Nariño, los sures caribeños, Bolívar, Córdoba, Sucre, los campesinos, cómo se hace una reforma agraria, cómo nos están poniendo trabas para que no lo hagamos.
+ 
+O sea, para mantener un statu quo de desigualdad pero también de privilegio porque es que la cara de la desigualdad social es que arriba hay unos privilegios enormes construidos, absolutamente irracionales, si no, no habría desigualdad, y si vamos a afectar esos privilegios cómo no nos dan un golpe de Estado, cómo subsistir, cómo vivimos, cómo no se devuelve la ola política para refrendar más esos privilegios. Que ya hay candidatas lanzadas para el efecto, lamentablemente mujeres, ¿O no?
+ 
+Cómo defender los privilegios a fuerza. Pues claro, una ciudad más social, más igualitaria tiene que romper los privilegios, incluso los nuestros, porque es una sociedad jerarquizada, de castas, no de clases. Las clases, de vivir frente a la producción. En Colombia casi no hay producción, entonces la división social no atraviesa el criterio sociológico, la clase social, sino de la casta, que es previo, que es pre moderno, casta con marca racial, etc.
+ 
+Entonces ese es el reto de hoy y ese es el reto del Gobierno y es el reto de esta época, si lo logramos bien. Yo he pedido, como los liberales y conservadores de antaño, como el proceso de paz que solucionó la segunda fase, que fue otra convocatoria al poder constituyente, la Constitución de 1991, convocar el poder constituyente para incluir el territorio. 
+ 
+Ustedes dicen ahora, que es para la reelección, no, de eso no se trata. Aquí hay reelecciones, pero yo les tengo aversión a los adictos al poder que hay en la izquierda y en la derecha, la adicción al poder no se diferencia por ideológicos, sino por talantes personales. El adicto al poder siempre mata, siempre. Y en el poder el asesino es un genocida porque el poder dimensiona la capacidad de saciedad, se vuelve un genocidio.
+ 
+Bueno, ese otro ejemplo sí que hay en todo el mundo, pero aquí en concreto, este es nuestro reto, cómo incluimos el territorio y la matriz de inversiones del Estado.
+ 
+Se invierte para incluir el territorio excluido y hacer prosperar sus sociedades con un corto criterio de prosperidad que está marcado por la cultura, que no es lo que nosotros queremos imponerlo, porque ahí generamos otra violencia, sino cómo se desarrolla como la flor.
+ 
+Que era el criterio de desarrollo económico en su acepción más clásica y se transformó fue en una imposición, o sea, ser como nosotros, eso no puede ser. Es como ellos quieren ser desarrollados, su prosperidad, ese es el reto de la actual violencia. 
+ 
+La posibilidad de pasar a una era de paz como la mayoría de las naciones del mundo si está a la vuelta a la esquina pero implica una transformación de Colombia. Nosotros diríamos revolución, pero para es más una transformación de Colombia porque tiene que romper privilegios, esquemas raciales, esquemas de exclusión, tiene que abrirse a una democracia, la democracia es plebeya.
+ 
+Siempre la democracia ha sido plebeya, aquí los obreros han sido Primero Ministros, eso se llama ser plebeyo, en Colombia significa que los negros puedan estar en el poder y que los indígenas y que los mestizos y que los que no descendemos de abolengo español, que además nadie en Colombia desciende la lengua española porque todos los que llegaron eran los bandidos que había en España, que venían a probar nuevas suertes, eso es como en Australia. Entonces digamos, no existe pero se ha construido a través de los siglos una arquitectura de la exclusión, incluso en Colombia se hereda a la Presidencia.
+ 
+De los apellidos del siglo 19 que fueron Presidentes siguen siendo los candidatos de hoy más importantes, digamos. Se creen que por derecho hereditario se puede ser Presidente. Pues Petro no tenía ninguna heredad, les parece extraño, qué hace ese señor en la Presidencia, parece extraño lo que no es más sino la lógica de una democracia plebeya. Eso es una redundancia, la democracia siempre es plebeya, no puede ser aristocrática.
+ 
+Tiene que ser popular como lo es nuestro Ejército, como lo es nuestro pueblo, es el pueblo, la diversidad colombiana en el poder, eso es lo que daría la posibilidad de una era de paz.
+ 
+El mundo puede ayudarnos, claro. Pero entendiendo este contexto. Un señor de izquierda europeo, una señora, que crea que lo que hay en Colombia es una guerra revolucionaria, se estrella contra la realidad, se equivoca completamente. 
+ 
+Si logramos ver que es cómo una región olvidada se vuelve próspera estando junto al mar, teniendo el puerto al lado y teniendo China al frente, y el Japón, y California por arriba, eso es obvio que la sociedad capitalista de hoy sabe cómo se hace.
+ 
+Y hay que hacerlo, hay que hacerlo, ya después hablaremos de qué sigue después del capitalismo, pero eso ya serán nuestros hijos que indudablemente entrarán en esa hermosa discusión. 
+ 
+Pero por ahora a Suecia le pediría que entre a ver cómo con la madera, con la pesca, con cosas que se han aprendido en la historia misma, podemos, sin imponer sino en cooperación con el movimiento indígena, las negritudes y otras formas, lograr formas de prosperidad regional que el poder centralizado Bogotá nunca pudo lograr pudiendo hacerlo. 
+ 
+Bueno, gracias muy amables por haberme escuchado. 
