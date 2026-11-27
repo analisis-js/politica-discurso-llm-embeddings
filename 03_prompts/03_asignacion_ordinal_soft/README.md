@@ -1,3 +1,3 @@
-# 03_asignacion_ordinal
+# 03_asignacion_ordinal_soft
 
-Este espacio incorpora todos los prompts usados en el proceso de LLM
+Prompt usado para la clasificación ordinal por el modelo de LLM
